@@ -1,3 +1,3 @@
-_**Love and friendship exclude each other.**_
+_**The things that one most wants to do are the things that are probably most worth doing.**_
 
-Jean de La Bruyère
+Winifred Holtby
