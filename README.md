@@ -1,3 +1,3 @@
-_**One today is worth two tomorrows.**_
+_**Can you imagine what I would do if I could do all I can?**_
 
-Benjamin Franklin
+Sun Tzu

@@ -6,6 +6,7 @@ require("dotenv").config();
 
 const PORT = process.env.PORT || 8081;
 const URL = process.env.URL;
+const CLOSE_DELAY = 5000;
 
 const getQuote = async () => {
   try {
@@ -40,9 +41,14 @@ const setupExpress = (quote, author) => {
     res.json({ quote, author });
   });
 
-  app.listen(PORT, () => {
+  server = app.listen(PORT, () => {
     console.log(`App listening on port: ${PORT}!`);
   });
+
+  setTimeout(() => {
+    console.log(`Closing the server after ${CLOSE_DELAY / 1000} seconds.`);
+    server.close();
+  }, CLOSE_DELAY);
 };
 
 const main = async () => {
