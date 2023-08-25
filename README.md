@@ -1,3 +1,3 @@
-_**No yesterdays are ever wasted for those who give themselves to today.**_
+_**When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.**_
 
-Brendan Behan
+Morihei Ueshiba
