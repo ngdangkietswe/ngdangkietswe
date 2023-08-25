@@ -1,3 +1,3 @@
-_**The things that one most wants to do are the things that are probably most worth doing.**_
+_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
 
-Winifred Holtby
+Plato
