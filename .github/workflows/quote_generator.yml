@@ -12,12 +12,19 @@ jobs:
 
     steps:
     - uses: actions/checkout@v2
+    
+    - name: Pull latest changes
+      run: git pull origin master
+      
     - uses: actions/setup-node@v3
       with:
         node-version: 16
+        
     - run: npm ci
+    
     - name: Generate quote
       run: npm run generate
+      
     - name: Update README.md
       run: |
         git config --global user.email "kietnguyen17052001@gmail.com"
