@@ -1,3 +1,3 @@
-_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
+_**For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.**_
 
-Plato
+Mary Kay Ash
