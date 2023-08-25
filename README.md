@@ -1,3 +1,3 @@
-_**Only put off until tomorrow what you are willing to die having left undone.**_
+_**The awareness of our own strength makes us modest.**_
 
-Pablo Picasso
+Paul Cézanne
