@@ -1,3 +1,3 @@
-_**In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.**_
+_**Only put off until tomorrow what you are willing to die having left undone.**_
 
-Eric Hoffer
+Pablo Picasso
