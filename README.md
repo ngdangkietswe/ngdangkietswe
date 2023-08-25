@@ -1,3 +1,3 @@
-_**Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.**_
+_**Success is getting what you want. Happiness is wanting what you get.**_
 
-Ted Williams
+Dale Carnegie
