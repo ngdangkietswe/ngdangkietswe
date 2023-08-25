@@ -1,3 +1,3 @@
-_**Success is getting what you want. Happiness is wanting what you get.**_
+_**He who knows, does not speak. He who speaks, does not know.**_
 
-Dale Carnegie
+Laozi
