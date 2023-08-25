@@ -1,3 +1,3 @@
-_**For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.**_
+_**People ask me what I do in winter when there's no baseball. I'll tell you what I do. I stare out the window and wait for spring.**_
 
-Mary Kay Ash
+Rogers Hornsby
