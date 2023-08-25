@@ -1,3 +1,3 @@
-_**Can you imagine what I would do if I could do all I can?**_
+_**In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.**_
 
-Sun Tzu
+Eric Hoffer
