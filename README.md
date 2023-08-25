@@ -1,3 +1,3 @@
-_**The only thing to do with good advice is to pass it on. It is never of any use to oneself.**_
+_**A real friend is one who walks in when the rest of the world walks out.**_
 
-Oscar Wilde
+Walter Winchell
