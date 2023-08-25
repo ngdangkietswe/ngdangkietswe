@@ -48,7 +48,7 @@ const setupExpress = (quote, author) => {
 const main = async () => {
   const { quote, author } = await getQuote();
   if (quote) {
-    generate(quote, author);
+    await generate(quote, author);
     setupExpress(quote, author);
   }
 };
