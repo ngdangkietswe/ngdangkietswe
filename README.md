@@ -1,3 +1,3 @@
-_**The awareness of our own strength makes us modest.**_
+_**Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.**_
 
-Paul Cézanne
+Ted Williams
