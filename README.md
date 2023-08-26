@@ -1,3 +1,3 @@
-_**If you love someone, set them free. If they come back, they're yours; if they don't, they never were.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-Richard Bach
+H. Jackson Brown Jr.
