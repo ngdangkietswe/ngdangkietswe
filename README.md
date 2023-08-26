@@ -1,3 +1,3 @@
-_**Imagination is more important than knowledge...**_
+_**We've got to have a dream if we are going to make a dream come true.**_
 
-Albert Einstein
+Walt Disney
