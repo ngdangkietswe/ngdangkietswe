@@ -1,3 +1,3 @@
-_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
+_**Share your smile with the world. It's a symbol of friendship and peace.**_
 
-Henry David Thoreau
+Christie Brinkley
