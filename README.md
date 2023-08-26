@@ -1,3 +1,3 @@
-_**It is not uncommon for people to spend their whole life waiting to start living.**_
+_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
 
-Eckhart Tolle
+Lord Byron
