@@ -1,3 +1,3 @@
-_**A true friend is the most precious of all possessions and the one we take the least thought about acquiring.**_
+_**It is one of the blessings of old friends that you can afford to be stupid with them.**_
 
-François de La Rochefoucauld
+Ralph Waldo Emerson
