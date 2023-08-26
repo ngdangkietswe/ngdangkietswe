@@ -1,3 +1,3 @@
-_**The key is to keep company only with people who uplift you, whose presence calls forth your best.**_
+_**If you love someone, set them free. If they come back, they're yours; if they don't, they never were.**_
 
-Epictetus
+Richard Bach
