@@ -1,3 +1,3 @@
-_**We've got to have a dream if we are going to make a dream come true.**_
+_**There is no expedient to which a man will not go to avoid the labor of thinking.**_
 
-Walt Disney
+Thomas Edison
