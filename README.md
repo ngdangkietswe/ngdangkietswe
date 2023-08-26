@@ -1,3 +1,3 @@
-_**A day of worry is more exhausting than a day of work.**_
+_**It is not uncommon for people to spend their whole life waiting to start living.**_
 
-John Lubbock
+Eckhart Tolle
