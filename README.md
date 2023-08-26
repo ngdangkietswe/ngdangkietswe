@@ -1,3 +1,3 @@
-_**A real friend is one who walks in when the rest of the world walks out.**_
+_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
 
-Walter Winchell
+Bruce Lee
