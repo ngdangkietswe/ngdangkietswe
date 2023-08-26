@@ -1,3 +1,3 @@
-_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
+_**A friend is, as it were, a second self.**_
 
-Bruce Lee
+Cicero
