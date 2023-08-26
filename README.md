@@ -1,3 +1,3 @@
-_**Self-trust is the first secret of success.**_
+_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
 
-Ralph Waldo Emerson
+Anne Brontë
