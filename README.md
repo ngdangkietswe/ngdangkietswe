@@ -1,3 +1,3 @@
-_**Friendship may, and often does, grow into love, but love never subsides into friendship.**_
+_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
 
-Lord Byron
+Napoleon Hill
