@@ -1,3 +1,3 @@
-_**A friend is, as it were, a second self.**_
+_**A true friend is the most precious of all possessions and the one we take the least thought about acquiring.**_
 
-Cicero
+François de La Rochefoucauld
