@@ -1,3 +1,3 @@
-_**It is one of the blessings of old friends that you can afford to be stupid with them.**_
+_**The key is to keep company only with people who uplift you, whose presence calls forth your best.**_
 
-Ralph Waldo Emerson
+Epictetus
