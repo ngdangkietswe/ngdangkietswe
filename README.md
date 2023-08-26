@@ -1,3 +1,3 @@
-_**There is no expedient to which a man will not go to avoid the labor of thinking.**_
+_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
 
-Thomas Edison
+Charles Lindbergh
