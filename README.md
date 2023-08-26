@@ -1,3 +1,3 @@
-_**All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.**_
+_**Love, friendship and respect do not unite people as much as a common hatred for something.**_
 
-Anne Brontë
+Anton Chekhov
