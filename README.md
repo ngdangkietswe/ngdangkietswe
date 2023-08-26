@@ -1,3 +1,3 @@
-_**You really can change the world if you care enough.**_
+_**Self-trust is the first secret of success.**_
 
-Marian Wright Edelman
+Ralph Waldo Emerson
