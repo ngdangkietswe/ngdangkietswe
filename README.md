@@ -1,3 +1,3 @@
-_**Share your smile with the world. It's a symbol of friendship and peace.**_
+_**Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.**_
 
-Christie Brinkley
+Aristotle
