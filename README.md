@@ -1,3 +1,3 @@
-_**No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.**_
+_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
 
-Robert Southey
+Napoleon Hill
