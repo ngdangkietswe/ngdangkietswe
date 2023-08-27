@@ -1,3 +1,3 @@
-_**Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!**_
+_**With the new day comes new strength and new thoughts.**_
 
-Charlotte Perkins Gilman
+Eleanor Roosevelt
