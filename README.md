@@ -1,3 +1,3 @@
-_**Nothing diminishes anxiety faster than action.**_
+_**When the world is so complicated, the simple gift of friendship is within all of our hands.**_
 
-Walter Inglis Anderson
+Maria Shriver
