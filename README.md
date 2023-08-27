@@ -1,3 +1,3 @@
-_**Ideas pull the trigger, but instinct loads the gun.**_
+_**Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!**_
 
-Don Marquis
+Charlotte Perkins Gilman
