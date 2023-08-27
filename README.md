@@ -1,3 +1,3 @@
-_**We are all inclined to judge ourselves by our ideals; others, by their acts.**_
+_**To follow, without halt, one aim: There is the secret of success.**_
 
-Harold Nicolson
+Anna Pavlova
