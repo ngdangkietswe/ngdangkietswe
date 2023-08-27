@@ -1,3 +1,3 @@
-_**Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.**_
+_**Nothing diminishes anxiety faster than action.**_
 
-Thomas Edison
+Walter Inglis Anderson
