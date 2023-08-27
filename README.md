@@ -1,3 +1,3 @@
-_**Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.**_
+_**When you are content to be simply yourself and don't compare or compete, everybody will respect you.**_
 
-Margaret Cousins
+Laozi
