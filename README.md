@@ -1,3 +1,3 @@
-_**With the new day comes new strength and new thoughts.**_
+_**The art challenges the technology, and the technology inspires the art.**_
 
-Eleanor Roosevelt
+John Lasseter
