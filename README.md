@@ -1,3 +1,3 @@
-_**Forgiveness is choosing to love. It is the first skill of self-giving love.**_
+_**The superior man understands what is right; the inferior man understands what will sell.**_
 
-Mahatma Gandhi
+Confucius
