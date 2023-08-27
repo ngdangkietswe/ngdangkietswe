@@ -1,3 +1,3 @@
-_**The art challenges the technology, and the technology inspires the art.**_
+_**Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.**_
 
-John Lasseter
+Sri Chinmoy
