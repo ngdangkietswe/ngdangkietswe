@@ -1,3 +1,3 @@
-_**The superior man understands what is right; the inferior man understands what will sell.**_
+_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
 
-Confucius
+Frank Abagnale
