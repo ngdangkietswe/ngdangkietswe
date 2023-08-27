@@ -1,3 +1,3 @@
-_**When you are content to be simply yourself and don't compare or compete, everybody will respect you.**_
+_**Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.**_
 
-Laozi
+Thomas Edison
