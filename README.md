@@ -1,3 +1,3 @@
-_**Be slow in choosing a friend, slower in changing.**_
+_**We are all inclined to judge ourselves by our ideals; others, by their acts.**_
 
-Benjamin Franklin
+Harold Nicolson
