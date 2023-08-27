@@ -1,3 +1,3 @@
-_**We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.**_
+_**Be slow in choosing a friend, slower in changing.**_
 
-Frank Abagnale
+Benjamin Franklin
