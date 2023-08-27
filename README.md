@@ -1,3 +1,3 @@
-_**We read the world wrong and say that it deceives us.**_
+_**Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.**_
 
-Rabindranath Tagore
+Helen Keller
