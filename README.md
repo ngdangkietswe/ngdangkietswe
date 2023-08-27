@@ -1,3 +1,3 @@
-_**Love, friendship and respect do not unite people as much as a common hatred for something.**_
+_**We read the world wrong and say that it deceives us.**_
 
-Anton Chekhov
+Rabindranath Tagore
