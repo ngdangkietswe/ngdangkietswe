@@ -1,3 +1,3 @@
-_**To follow, without halt, one aim: There is the secret of success.**_
+_**Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.**_
 
-Anna Pavlova
+Maya Angelou
