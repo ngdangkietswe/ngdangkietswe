@@ -1,3 +1,3 @@
-_**When the world is so complicated, the simple gift of friendship is within all of our hands.**_
+_**In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.**_
 
-Maria Shriver
+The Buddha
