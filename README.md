@@ -1,3 +1,3 @@
-_**Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Maya Angelou
+Elbert Hubbard
