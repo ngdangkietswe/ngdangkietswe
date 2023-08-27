@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**Forgiveness is choosing to love. It is the first skill of self-giving love.**_
 
-Napoleon Hill
+Mahatma Gandhi
