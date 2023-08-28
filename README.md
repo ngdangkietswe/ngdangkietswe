@@ -1,3 +1,3 @@
-_**Imagination is not a talent of some men but is the health of every man.**_
+_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
 
-Ralph Waldo Emerson
+Reinhold Niebuhr
