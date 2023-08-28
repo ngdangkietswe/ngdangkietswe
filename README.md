@@ -1,3 +1,3 @@
-_**Love isn't something you find. Love is something that finds you.**_
+_**He who lives in harmony with himself lives in harmony with the universe.**_
 
-Loretta Young
+Marcus Aurelius
