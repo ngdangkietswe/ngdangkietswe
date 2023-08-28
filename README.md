@@ -1,3 +1,3 @@
-_**Allow the world to live as it chooses, and allow yourself to live as you choose.**_
+_**The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.**_
 
-Richard Bach
+Anaïs Nin
