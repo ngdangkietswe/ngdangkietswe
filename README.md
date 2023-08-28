@@ -1,3 +1,3 @@
-_**I'm not in this world to live up to your expectations and you're not in this world to live up to mine.**_
+_**I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.**_
 
-Bruce Lee
+Harbhajan Singh
