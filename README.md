@@ -1,3 +1,3 @@
-_**Be slow to fall into friendship; but when thou art in, continue firm and constant.**_
+_**You cannot be lonely if you like the person you're alone with.**_
 
-Isocrates
+Wayne Dyer
