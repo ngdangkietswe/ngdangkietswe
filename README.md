@@ -1,3 +1,3 @@
-_**Beauty is not in the face; beauty is a light in the heart.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-Kahlil Gibran
+H. Jackson Brown Jr.
