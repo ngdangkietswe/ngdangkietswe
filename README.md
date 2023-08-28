@@ -1,3 +1,3 @@
-_**In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.**_
+_**I hear and I forget. I see and I remember. I do and I understand.**_
 
-The Buddha
+Confucius
