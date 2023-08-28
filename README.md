@@ -1,3 +1,3 @@
-_**The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition.**_
+_**If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.**_
 
-Ralph Abernathy
+Epictetus
