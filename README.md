@@ -1,3 +1,3 @@
-_**Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.**_
+_**Love isn't something you find. Love is something that finds you.**_
 
-Theodore Isaac Rubin
+Loretta Young
