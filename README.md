@@ -1,3 +1,3 @@
-_**The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.**_
+_**Nothing happens unless first we dream.**_
 
-Reinhold Niebuhr
+Carl Sandburg
