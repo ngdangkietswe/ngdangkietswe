@@ -1,3 +1,3 @@
-_**God has given you one face, and you make yourself another.**_
+_**Imagination is the living power and prime agent of all human perception.**_
 
-William Shakespeare
+Samuel Taylor Coleridge
