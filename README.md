@@ -1,3 +1,3 @@
-_**It is fatal to enter any war without the will to win it.**_
+_**Knowledge rests not upon truth alone, but upon error also.**_
 
-Douglas MacArthur
+Carl Jung
