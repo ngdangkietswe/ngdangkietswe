@@ -1,3 +1,3 @@
-_**Knowledge rests not upon truth alone, but upon error also.**_
+_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
 
-Carl Jung
+Cory Doctorow
