@@ -1,3 +1,3 @@
-_**He who lives in harmony with himself lives in harmony with the universe.**_
+_**Spread love everywhere you go. Let no one ever come to you without leaving happier.**_
 
-Marcus Aurelius
+Mother Teresa
