@@ -1,3 +1,3 @@
-_**Be the change that you want to see in the world.**_
+_**God has given you one face, and you make yourself another.**_
 
-Mahatma Gandhi
+William Shakespeare
