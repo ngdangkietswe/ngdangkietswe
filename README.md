@@ -1,3 +1,3 @@
-_**Everything that irritates us about others can lead us to a better understanding of ourselves.**_
+_**We make our own fortunes and we call them fate.**_
 
-Carl Jung
+Benjamin Disraeli
