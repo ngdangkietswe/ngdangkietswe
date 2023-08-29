@@ -1,3 +1,3 @@
-_**People may doubt what you say, but they will believe what you do.**_
+_**Never accept ultimatums, conventional wisdom, or absolutes.**_
 
-Lewis Cass
+Christopher Reeve
