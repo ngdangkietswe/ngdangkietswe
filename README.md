@@ -1,3 +1,3 @@
-_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
+_**People may doubt what you say, but they will believe what you do.**_
 
-H. Jackson Brown Jr.
+Lewis Cass
