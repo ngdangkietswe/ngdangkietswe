@@ -1,3 +1,3 @@
-_**Spread love everywhere you go. Let no one ever come to you without leaving happier.**_
+_**Be the change that you want to see in the world.**_
 
-Mother Teresa
+Mahatma Gandhi
