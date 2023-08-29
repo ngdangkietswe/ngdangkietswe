@@ -1,3 +1,3 @@
-_**Imagination is the living power and prime agent of all human perception.**_
+_**Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.**_
 
-Samuel Taylor Coleridge
+Farhan Akhtar
