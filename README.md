@@ -1,3 +1,3 @@
-_**Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.**_
+_**You can't win unless you learn how to lose.**_
 
-William Shakespeare
+Kareem Abdul-Jabbar
