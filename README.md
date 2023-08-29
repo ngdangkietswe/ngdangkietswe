@@ -1,3 +1,3 @@
-_**This is why I loved technology: if you used it right, it could give you power and privacy.**_
+_**Everything that irritates us about others can lead us to a better understanding of ourselves.**_
 
-Cory Doctorow
+Carl Jung
