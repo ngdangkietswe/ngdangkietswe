@@ -1,3 +1,3 @@
-_**The noblest worship is to make yourself as good and as just as you can.**_
+_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
 
-Isocrates
+Winston Churchill
