@@ -1,3 +1,3 @@
-_**In wartime, truth is so precious that she should always be attended by a bodyguard of lies.**_
+_**Wisdom comes alone through suffering.**_
 
-Winston Churchill
+Aeschylus
