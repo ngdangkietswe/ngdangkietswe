@@ -1,3 +1,3 @@
-_**Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.**_
+_**Love is a friendship set to music.**_
 
-Farhan Akhtar
+Joseph Campbell
