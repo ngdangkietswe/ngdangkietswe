@@ -1,3 +1,3 @@
-_**You can't win unless you learn how to lose.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-Kareem Abdul-Jabbar
+H. Jackson Brown Jr.
