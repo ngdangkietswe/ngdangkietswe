@@ -1,3 +1,3 @@
-_**What you get by achieving your goals is not as important as what you become by achieving your goals.**_
+_**The noblest worship is to make yourself as good and as just as you can.**_
 
-Zig Ziglar
+Isocrates
