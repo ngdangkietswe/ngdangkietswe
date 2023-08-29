@@ -1,3 +1,3 @@
-_**To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.**_
+_**Wherever a man turns he can find someone who needs him.**_
 
-Pema Chödrön
+Albert Schweitzer
