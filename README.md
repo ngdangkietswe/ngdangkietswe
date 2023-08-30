@@ -1,3 +1,3 @@
-_**Whatever has the nature of arising has the nature of ceasing.**_
+_**In all things of nature there is something of the marvelous.**_
 
-The Buddha
+Aristotle
