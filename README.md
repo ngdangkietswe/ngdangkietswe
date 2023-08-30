@@ -1,3 +1,3 @@
-_**I destroy my enemies when I make them my friends.**_
+_**You can't win unless you learn how to lose.**_
 
-Abraham Lincoln
+Kareem Abdul-Jabbar
