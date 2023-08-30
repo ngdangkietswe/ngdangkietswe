@@ -1,3 +1,3 @@
-_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
+_**It is the supreme art of the teacher to awaken joy in creative expression and knowledge.**_
 
-W. Clement Stone
+Albert Einstein
