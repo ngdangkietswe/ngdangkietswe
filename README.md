@@ -1,3 +1,3 @@
-_**You can't win unless you learn how to lose.**_
+_**Friendship, like credit, is highest when it is not used.**_
 
-Kareem Abdul-Jabbar
+Elbert Hubbard
