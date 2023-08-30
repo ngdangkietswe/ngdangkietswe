@@ -1,3 +1,3 @@
-_**It is the supreme art of the teacher to awaken joy in creative expression and knowledge.**_
+_**I destroy my enemies when I make them my friends.**_
 
-Albert Einstein
+Abraham Lincoln
