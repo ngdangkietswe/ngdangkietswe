@@ -1,3 +1,3 @@
-_**Friendship, like credit, is highest when it is not used.**_
+_**Happiness is the reward we get for living to the highest right we know.**_
 
-Elbert Hubbard
+Richard Bach
