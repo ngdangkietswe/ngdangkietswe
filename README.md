@@ -1,3 +1,3 @@
-_**It isn't where you come from, it's where you're going that counts.**_
+_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
 
-Ella Fitzgerald
+Cicero
