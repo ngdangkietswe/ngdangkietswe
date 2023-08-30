@@ -1,3 +1,3 @@
-_**Happiness is the reward we get for living to the highest right we know.**_
+_**Whatever has the nature of arising has the nature of ceasing.**_
 
-Richard Bach
+The Buddha
