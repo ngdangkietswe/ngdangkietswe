@@ -1,3 +1,3 @@
-_**Gratitude is not only the greatest of virtues, but the parent of all the others.**_
+_**No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.**_
 
-Cicero
+W. Clement Stone
