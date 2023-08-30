@@ -1,3 +1,3 @@
-_**Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?**_
+_**Luck is what happens when preparation meets opportunity.**_
 
-Dalai Lama
+Seneca the Younger
