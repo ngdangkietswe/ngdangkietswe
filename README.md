@@ -1,3 +1,3 @@
-_**Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.**_
+_**Doing nothing is better than being busy doing nothing.**_
 
-Jane Addams
+Laozi
