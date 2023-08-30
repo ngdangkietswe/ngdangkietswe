@@ -1,3 +1,3 @@
-_**I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.**_
+_**How we spend our days is, of course, how we spend our lives.**_
 
-Elisabeth Kübler-Ross
+Annie Dillard
