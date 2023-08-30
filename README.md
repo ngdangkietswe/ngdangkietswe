@@ -1,3 +1,3 @@
-_**How we spend our days is, of course, how we spend our lives.**_
+_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
 
-Annie Dillard
+Aldous Huxley
