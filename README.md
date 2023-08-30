@@ -1,3 +1,3 @@
-_**No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.**_
+_**Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.**_
 
-Niccolò Machiavelli
+Jane Addams
