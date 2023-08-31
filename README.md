@@ -1,3 +1,3 @@
-_**Government of the people, by the people, for the people, shall not perish from the Earth.**_
+_**Let yourself be silently drawn by the stronger pull of what you really love.**_
 
-Abraham Lincoln
+Rumi
