@@ -1,3 +1,3 @@
-_**It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.**_
+_**Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.**_
 
-Henry Ward Beecher
+Marcel Proust
