@@ -1,3 +1,3 @@
-_**We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.**_
+_**The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.**_
 
-Ralph Waldo Emerson
+William Hurt
