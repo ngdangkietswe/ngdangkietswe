@@ -1,3 +1,3 @@
-_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
+_**If opportunity doesn't knock, build a door.**_
 
-Lucille Ball
+Milton Berle
