@@ -1,3 +1,3 @@
-_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
+_**I have an everyday religion that works for me. Love yourself first, and everything else falls into line.**_
 
-Elizabeth Browning
+Lucille Ball
