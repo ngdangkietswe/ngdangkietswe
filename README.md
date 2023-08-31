@@ -1,3 +1,3 @@
-_**Independence is happiness.**_
+_**The beginning is always today.**_
 
-Susan B. Anthony
+Mary Wollstonecraft
