@@ -1,3 +1,3 @@
-_**The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.**_
+_**The best thing in every noble dream is the dreamer...**_
 
-William Hurt
+Moncure D. Conway
