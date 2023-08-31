@@ -1,3 +1,3 @@
-_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
+_**We can change our lives. We can do, have, and be exactly what we wish.**_
 
-Joseph Roux
+Tony Robbins
