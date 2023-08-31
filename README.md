@@ -1,3 +1,3 @@
-_**Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-Dale Turner
+John F. Kennedy
