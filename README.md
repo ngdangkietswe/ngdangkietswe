@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**One loyal friend is worth ten thousand relatives.**_
 
-John F. Kennedy
+Euripides
