@@ -1,3 +1,3 @@
-_**Let yourself be silently drawn by the stronger pull of what you really love.**_
+_**Love doesn't make the world go round; love is what makes the ride worthwhile.**_
 
-Rumi
+Elizabeth Browning
