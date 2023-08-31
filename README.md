@@ -1,3 +1,3 @@
-_**If opportunity doesn't knock, build a door.**_
+_**Speak low, if you speak love.**_
 
-Milton Berle
+William Shakespeare
