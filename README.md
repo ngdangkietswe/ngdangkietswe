@@ -1,3 +1,3 @@
-_**Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity.**_
+_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
 
-The Buddha
+Joseph Roux
