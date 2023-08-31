@@ -1,3 +1,3 @@
-_**What you get by achieving your goals is not as important as what you become by achieving your goals.**_
+_**Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity.**_
 
-Zig Ziglar
+The Buddha
