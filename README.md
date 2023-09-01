@@ -1,3 +1,3 @@
-_**Love is rarer than genius itself. And friendship is rarer than love.**_
+_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
 
-Charles Péguy
+Thích Nhất Hạnh
