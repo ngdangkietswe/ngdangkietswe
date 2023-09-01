@@ -1,3 +1,3 @@
-_**If you would take, you must first give, this is the beginning of intelligence.**_
+_**Friendship, like credit, is highest when it is not used.**_
 
-Laozi
+Elbert Hubbard
