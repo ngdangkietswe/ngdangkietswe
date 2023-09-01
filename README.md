@@ -1,3 +1,3 @@
-_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
+_**Stay committed to your decisions, but stay flexible in your approach.**_
 
-Mark Twain
+Tony Robbins
