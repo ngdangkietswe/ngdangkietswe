@@ -1,3 +1,3 @@
-_**Eighty percent of success is showing up.**_
+_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
 
-Woody Allen
+Elbert Hubbard
