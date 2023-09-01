@@ -1,3 +1,3 @@
-_**Friendship, like credit, is highest when it is not used.**_
+_**If you correct your mind, the rest of your life will fall into place.**_
 
-Elbert Hubbard
+Laozi
