@@ -1,3 +1,3 @@
-_**If you correct your mind, the rest of your life will fall into place.**_
+_**Love is rarer than genius itself. And friendship is rarer than love.**_
 
-Laozi
+Charles Péguy
