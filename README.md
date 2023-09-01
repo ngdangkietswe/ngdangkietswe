@@ -1,3 +1,3 @@
-_**Reason and free inquiry are the only effectual agents against error.**_
+_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
 
-Thomas Jefferson
+Henry Ward Beecher
