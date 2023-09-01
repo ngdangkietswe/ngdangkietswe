@@ -1,3 +1,3 @@
-_**The world is a book, and those who do not travel read only a page.**_
+_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
 
-Augustine of Hippo
+Ralph Waldo Emerson
