@@ -1,3 +1,3 @@
-_**Pitching is the art of instilling fear.**_
+_**The exercise of an extraordinary gift is the supremist pleasure in life.**_
 
-Sandy Koufax
+Mark Twain
