@@ -1,3 +1,3 @@
-_**We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.**_
+_**Everything you are against weakens you. Everything you are for empowers you.**_
 
-Henry Ward Beecher
+Wayne Dyer
