@@ -1,3 +1,3 @@
-_**We must not allow ourselves to become like the system we oppose.**_
+_**If I find 10,000 ways something won't work, I haven't failed. I am not discouraged, because every wrong attempt discarded is another step forward.**_
 
-Desmond Tutu
+Thomas Edison
