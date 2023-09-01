@@ -1,3 +1,3 @@
-_**By living deeply in the present moment we can understand the past better and we can prepare for a better future.**_
+_**Reason and free inquiry are the only effectual agents against error.**_
 
-Thích Nhất Hạnh
+Thomas Jefferson
