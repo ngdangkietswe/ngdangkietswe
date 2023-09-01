@@ -1,3 +1,3 @@
-_**Stay committed to your decisions, but stay flexible in your approach.**_
+_**Eighty percent of success is showing up.**_
 
-Tony Robbins
+Woody Allen
