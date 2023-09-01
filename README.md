@@ -1,3 +1,3 @@
-_**Never explain - your friends do not need it and your enemies will not believe you anyway.**_
+_**It is not enough to have a good mind; the main thing is to use it well.**_
 
-Elbert Hubbard
+René Descartes
