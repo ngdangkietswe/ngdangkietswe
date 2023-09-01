@@ -1,3 +1,3 @@
-_**A really great talent finds its happiness in execution.**_
+_**We must not allow ourselves to become like the system we oppose.**_
 
-Johann Wolfgang von Goethe
+Desmond Tutu
