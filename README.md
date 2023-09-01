@@ -1,3 +1,3 @@
-_**Reality is merely an illusion, albeit a very persistent one.**_
+_**The world is a book, and those who do not travel read only a page.**_
 
-Albert Einstein
+Augustine of Hippo
