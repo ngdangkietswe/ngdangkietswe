@@ -1,3 +1,3 @@
-_**The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.**_
+_**Your talent is God's gift to you. What you do with it is your gift back to God.**_
 
-Plato
+Leo Buscaglia
