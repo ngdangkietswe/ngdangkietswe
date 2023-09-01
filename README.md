@@ -1,3 +1,3 @@
-_**Everything you are against weakens you. Everything you are for empowers you.**_
+_**Pitching is the art of instilling fear.**_
 
-Wayne Dyer
+Sandy Koufax
