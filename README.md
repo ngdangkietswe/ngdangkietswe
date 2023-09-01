@@ -1,3 +1,3 @@
-_**One loyal friend is worth ten thousand relatives.**_
+_**A really great talent finds its happiness in execution.**_
 
-Euripides
+Johann Wolfgang von Goethe
