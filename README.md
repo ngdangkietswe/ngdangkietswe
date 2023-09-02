@@ -1,3 +1,3 @@
-_**Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.**_
+_**Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.**_
 
-Ralph Waldo Emerson
+William Arthur Ward
