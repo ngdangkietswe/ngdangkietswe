@@ -1,3 +1,3 @@
-_**With the new day comes new strength and new thoughts.**_
+_**Be sure you put your feet in the right place, then stand firm.**_
 
-Eleanor Roosevelt
+Abraham Lincoln
