@@ -1,3 +1,3 @@
-_**One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.**_
+_**He who has imagination without learning has wings but no feet.**_
 
-Brooks Adams
+Joseph Joubert
