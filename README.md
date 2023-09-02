@@ -1,3 +1,3 @@
-_**A man should look for what is, and not for what he thinks should be.**_
+_**He who lives in harmony with himself lives in harmony with the world.**_
 
-Albert Einstein
+Marcus Aurelius
