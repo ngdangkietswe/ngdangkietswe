@@ -1,3 +1,3 @@
-_**Be sure you put your feet in the right place, then stand firm.**_
+_**There is nothing happens to any person but what was in his power to go through with.**_
 
-Abraham Lincoln
+Marcus Aurelius
