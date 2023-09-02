@@ -1,3 +1,3 @@
-_**Let there be no purpose in friendship save the deepening of the spirit.**_
+_**With the new day comes new strength and new thoughts.**_
 
-Kahlil Gibran
+Eleanor Roosevelt
