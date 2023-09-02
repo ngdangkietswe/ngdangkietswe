@@ -1,3 +1,3 @@
-_**A man is great by deeds, not by birth.**_
+_**Technology has to be invented or adopted.**_
 
-Chanakya
+Jared Diamond
