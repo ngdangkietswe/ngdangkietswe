@@ -1,3 +1,3 @@
-_**Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.**_
+_**A man should look for what is, and not for what he thinks should be.**_
 
-William Arthur Ward
+Albert Einstein
