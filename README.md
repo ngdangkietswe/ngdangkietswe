@@ -1,3 +1,3 @@
-_**Let your hook always be cast; in the pool where you least expect it, there will be a fish.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-Ovid
+Plato
