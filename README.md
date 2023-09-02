@@ -1,3 +1,3 @@
-_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
+_**I gave my life to become the person I am right now. Was it worth it?**_
 
-Walt Disney
+Richard Bach
