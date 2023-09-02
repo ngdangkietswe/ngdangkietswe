@@ -1,3 +1,3 @@
-_**There is nothing happens to any person but what was in his power to go through with.**_
+_**He who hath many friends hath none.**_
 
-Marcus Aurelius
+Aristotle
