@@ -1,3 +1,3 @@
-_**Technology has to be invented or adopted.**_
+_**I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.**_
 
-Jared Diamond
+Laozi
