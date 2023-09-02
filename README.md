@@ -1,3 +1,3 @@
-_**Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.**_
+_**Let there be no purpose in friendship save the deepening of the spirit.**_
 
-The Buddha
+Kahlil Gibran
