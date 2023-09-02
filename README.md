@@ -1,3 +1,3 @@
-_**I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.**_
+_**Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.**_
 
-Oprah Winfrey
+The Buddha
