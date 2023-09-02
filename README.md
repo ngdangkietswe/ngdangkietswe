@@ -1,3 +1,3 @@
-_**He who lives in harmony with himself lives in harmony with the world.**_
+_**Happiness mainly comes from our own attitude, rather than from external factors.**_
 
-Marcus Aurelius
+Dalai Lama
