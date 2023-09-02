@@ -1,3 +1,3 @@
-_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
+_**A man is great by deeds, not by birth.**_
 
-Anaïs Nin
+Chanakya
