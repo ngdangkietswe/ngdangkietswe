@@ -1,3 +1,3 @@
-_**I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.**_
+_**I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.**_
 
-Laozi
+Oprah Winfrey
