@@ -1,3 +1,3 @@
-_**No man is free who is not master of himself.**_
+_**The more you like yourself, the less you are like anyone else, which makes you unique.**_
 
-Epictetus
+Walt Disney
