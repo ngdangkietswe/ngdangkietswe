@@ -1,3 +1,3 @@
-_**Imagination is the highest kite one can fly.**_
+_**The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.**_
 
-Lauren Bacall
+Laozi
