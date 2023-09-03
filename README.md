@@ -1,3 +1,3 @@
-_**In every walk with nature, one receives far more than he seeks.**_
+_**Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health.**_
 
-John Muir
+Dalai Lama
