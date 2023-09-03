@@ -1,3 +1,3 @@
-_**Love is the wisdom of the fool and the folly of the wise.**_
+_**Joy is what happens to us when we allow ourselves to recognize how good things really are.**_
 
-Samuel Johnson
+Marianne Williamson
