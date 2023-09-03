@@ -1,3 +1,3 @@
-_**Joy is what happens to us when we allow ourselves to recognize how good things really are.**_
+_**I think somehow, we learn who we really are and then live with that decision.**_
 
-Marianne Williamson
+Eleanor Roosevelt
