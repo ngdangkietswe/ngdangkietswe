@@ -1,3 +1,3 @@
-_**So much technology, so little talent.**_
+_**Love is the wisdom of the fool and the folly of the wise.**_
 
-Vernor Vinge
+Samuel Johnson
