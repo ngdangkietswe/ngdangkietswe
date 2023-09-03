@@ -1,3 +1,3 @@
-_**Love is flower like; Friendship is like a sheltering tree.**_
+_**Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.**_
 
-Samuel Taylor Coleridge
+Henry van Dyke Jr.
