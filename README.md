@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
 
-Richard Bach
+Dalai Lama
