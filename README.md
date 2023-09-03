@@ -1,3 +1,3 @@
-_**Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.**_
+_**Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.**_
 
-Johann Wolfgang von Goethe
+Albert Schweitzer
