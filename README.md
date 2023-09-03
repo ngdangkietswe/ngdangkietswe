@@ -1,3 +1,3 @@
-_**Love is the attempt to form a friendship inspired by beauty.**_
+_**To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.**_
 
-Cicero
+The Buddha
