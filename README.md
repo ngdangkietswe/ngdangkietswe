@@ -1,3 +1,3 @@
-_**I don't believe in failure. It's not failure if you enjoyed the process.**_
+_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
 
-Oprah Winfrey
+Thomas Edison
