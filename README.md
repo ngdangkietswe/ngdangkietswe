@@ -1,3 +1,3 @@
-_**Just because something doesn't do what you planned it to do doesn't mean it's useless.**_
+_**Nature gave us one tongue and two ears so we could hear twice as much as we speak.**_
 
-Thomas Edison
+Epictetus
