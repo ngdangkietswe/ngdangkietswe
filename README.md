@@ -1,3 +1,3 @@
-_**Most powerful is he who has himself in his own power.**_
+_**Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.**_
 
-Seneca the Younger
+Ralph Marston
