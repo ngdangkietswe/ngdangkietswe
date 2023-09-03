@@ -1,3 +1,3 @@
-_**I think somehow, we learn who we really are and then live with that decision.**_
+_**Nothing strengthens authority so much as silence.**_
 
-Eleanor Roosevelt
+Leonardo da Vinci
