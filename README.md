@@ -1,3 +1,3 @@
-_**I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.**_
+_**In every walk with nature, one receives far more than he seeks.**_
 
-Dalai Lama
+John Muir
