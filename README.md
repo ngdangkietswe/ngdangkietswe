@@ -1,3 +1,3 @@
-_**Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health.**_
+_**A thing long expected takes the form of the unexpected when at last it comes.**_
 
-Dalai Lama
+Mark Twain
