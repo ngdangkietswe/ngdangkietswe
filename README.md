@@ -1,3 +1,3 @@
-_**Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.**_
+_**Love is the attempt to form a friendship inspired by beauty.**_
 
-Henry van Dyke Jr.
+Cicero
