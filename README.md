@@ -1,3 +1,3 @@
-_**A thing long expected takes the form of the unexpected when at last it comes.**_
+_**No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.**_
 
-Mark Twain
+Niccolò Machiavelli
