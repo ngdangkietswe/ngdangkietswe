@@ -1,3 +1,3 @@
-_**To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.**_
+_**I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.**_
 
-The Buddha
+Plutarch
