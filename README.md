@@ -1,3 +1,3 @@
-_**Setting goals is the first step in turning the invisible into the visible.**_
+_**The universe is made of stories, not atoms.**_
 
-Tony Robbins
+Muriel Rukeyser
