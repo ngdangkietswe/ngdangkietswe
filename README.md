@@ -1,3 +1,3 @@
-_**Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.**_
+_**There are two kinds of failures: those who thought and never did, and those who did and never thought.**_
 
-John Dewey
+Laurence J. Peter
