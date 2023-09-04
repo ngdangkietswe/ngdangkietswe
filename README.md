@@ -1,3 +1,3 @@
-_**The universe is made of stories, not atoms.**_
+_**I know but one freedom and that is the freedom of the mind.**_
 
-Muriel Rukeyser
+Antoine de Saint-Exupéry
