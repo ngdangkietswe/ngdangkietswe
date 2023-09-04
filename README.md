@@ -1,3 +1,3 @@
-_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
+_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
 
-Melody Beattie
+Aldous Huxley
