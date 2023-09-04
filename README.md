@@ -1,3 +1,3 @@
-_**Whatever happens, take responsibility.**_
+_**Trouble is only opportunity in work clothes.**_
 
-Tony Robbins
+Henry J. Kaiser
