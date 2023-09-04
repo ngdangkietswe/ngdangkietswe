@@ -1,3 +1,3 @@
-_**There is only one corner of the universe you can be certain of improving, and that's your own self.**_
+_**Where there is a will, there is a way. If there is a chance in a million that you can do something, anything, to keep what you want from ending, do it. Pry the door open or, if need be, wedge your foot in that door and keep it open.**_
 
-Aldous Huxley
+Pauline Kael
