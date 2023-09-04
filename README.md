@@ -1,3 +1,3 @@
-_**Silence is deep as Eternity; Speech is shallow as Time.**_
+_**Setting an example is not the main means of influencing another, it is the only means.**_
 
-Thomas Carlyle
+Albert Einstein
