@@ -1,3 +1,3 @@
-_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
+_**Pick battles big enough to matter, small enough to win.**_
 
-J. Willard Marriott
+Jonathan Kozol
