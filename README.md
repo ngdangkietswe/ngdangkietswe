@@ -1,3 +1,3 @@
-_**To know oneself is to study oneself in action with another person.**_
+_**Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.**_
 
-Bruce Lee
+Ralph Waldo Emerson
