@@ -1,3 +1,3 @@
-_**Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.**_
+_**Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.**_
 
-Ralph Waldo Emerson
+John Dewey
