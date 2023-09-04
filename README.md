@@ -1,3 +1,3 @@
-_**Nothing strengthens authority so much as silence.**_
+_**Meaning is not what you start with but what you end up with.**_
 
-Leonardo da Vinci
+Peter Elbow
