@@ -1,3 +1,3 @@
-_**The simplest things are often the truest.**_
+_**Technology is anything that wasn't around when you were born.**_
 
-Richard Bach
+Man Ray
