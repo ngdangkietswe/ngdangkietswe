@@ -1,3 +1,3 @@
-_**Pick battles big enough to matter, small enough to win.**_
+_**Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.**_
 
-Jonathan Kozol
+Melody Beattie
