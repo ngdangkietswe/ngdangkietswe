@@ -1,3 +1,3 @@
-_**Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others**_
+_**The simplest things are often the truest.**_
 
-The Buddha
+Richard Bach
