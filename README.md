@@ -1,3 +1,3 @@
-_**Technology is anything that wasn't around when you were born.**_
+_**A thing long expected takes the form of the unexpected when at last it comes.**_
 
-Man Ray
+Mark Twain
