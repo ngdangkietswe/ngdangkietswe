@@ -1,3 +1,3 @@
-_**Setting an example is not the main means of influencing another, it is the only means.**_
+_**To know oneself is to study oneself in action with another person.**_
 
-Albert Einstein
+Bruce Lee
