@@ -1,3 +1,3 @@
-_**Meaning is not what you start with but what you end up with.**_
+_**Whatever happens, take responsibility.**_
 
-Peter Elbow
+Tony Robbins
