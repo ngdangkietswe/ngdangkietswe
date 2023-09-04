@@ -1,3 +1,3 @@
-_**I know but one freedom and that is the freedom of the mind.**_
+_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
 
-Antoine de Saint-Exupéry
+Thomas Carlyle
