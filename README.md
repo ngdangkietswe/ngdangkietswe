@@ -1,3 +1,3 @@
-_**Trouble is only opportunity in work clothes.**_
+_**Good timber does not grow with ease; the stronger the wind, the stronger the trees.**_
 
-Henry J. Kaiser
+J. Willard Marriott
