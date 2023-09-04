@@ -1,3 +1,3 @@
-_**A thing long expected takes the form of the unexpected when at last it comes.**_
+_**The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.**_
 
-Mark Twain
+Michelangelo
