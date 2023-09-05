@@ -1,3 +1,3 @@
-_**In seed time learn, in harvest teach, in winter enjoy.**_
+_**Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.**_
 
-William Blake
+Amy Bloom
