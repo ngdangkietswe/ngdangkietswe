@@ -1,3 +1,3 @@
-_**Wisdom has never made a bigot, but learning has.**_
+_**Remember that sometimes not getting what you want is a wonderful stroke of luck.**_
 
-Josh Billings
+Dalai Lama
