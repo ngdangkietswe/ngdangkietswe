@@ -1,3 +1,3 @@
-_**Those who are free of resentful thoughts surely find peace.**_
+_**Wisdom has never made a bigot, but learning has.**_
 
-The Buddha
+Josh Billings
