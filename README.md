@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**There is nothing in a caterpillar that tells you it's going to be a butterfly.**_
 
-Tony Robbins
+Buckminster Fuller
