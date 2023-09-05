@@ -1,3 +1,3 @@
-_**This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.**_
+_**As an organizer I start from where the world is, as it is, not as I would like it to be.**_
 
-Thomas Carlyle
+Saul Alinsky
