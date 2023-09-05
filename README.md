@@ -1,3 +1,3 @@
-_**Strong beliefs win strong men, and then make them stronger.**_
+_**If you do what you've always done, you'll get what you've always gotten.**_
 
-Richard Bach
+Tony Robbins
