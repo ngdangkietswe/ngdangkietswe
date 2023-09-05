@@ -1,3 +1,3 @@
-_**Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.**_
+_**Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.**_
 
-Carrie Snow
+Blaise Pascal
