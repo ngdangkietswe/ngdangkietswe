@@ -1,3 +1,3 @@
-_**Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.**_
+_**Those who are free of resentful thoughts surely find peace.**_
 
-Amy Bloom
+The Buddha
