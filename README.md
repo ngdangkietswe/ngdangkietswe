@@ -1,3 +1,3 @@
-_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
+_**You don't look out there for God, something in the sky, you look in you.**_
 
-Jonathan Swift
+Alan Watts
