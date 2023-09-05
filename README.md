@@ -1,3 +1,3 @@
-_**The future is completely open, and we are writing it moment to moment.**_
+_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
 
-Pema Chödrön
+Jonathan Swift
