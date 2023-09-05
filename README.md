@@ -1,3 +1,3 @@
-_**Remember that sometimes not getting what you want is a wonderful stroke of luck.**_
+_**Things do not happen. Things are made to happen.**_
 
-Dalai Lama
+John F. Kennedy
