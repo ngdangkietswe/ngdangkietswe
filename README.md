@@ -1,3 +1,3 @@
-_**You don't look out there for God, something in the sky, you look in you.**_
+_**Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.**_
 
-Alan Watts
+Carrie Snow
