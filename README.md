@@ -1,3 +1,3 @@
-_**Unless one is able to live fully in the present, the future is a hoax.**_
+_**Correction does much, but encouragement does more.**_
 
-Alan Watts
+Johann Wolfgang von Goethe
