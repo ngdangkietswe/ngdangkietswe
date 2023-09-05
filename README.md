@@ -1,3 +1,3 @@
-_**Things do not happen. Things are made to happen.**_
+_**Strong beliefs win strong men, and then make them stronger.**_
 
-John F. Kennedy
+Richard Bach
