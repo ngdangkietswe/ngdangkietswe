@@ -1,3 +1,3 @@
-_**I begin with an idea and then it becomes something else.**_
+_**They must often change, who would be constant in happiness or wisdom.**_
 
-Pablo Picasso
+Confucius
