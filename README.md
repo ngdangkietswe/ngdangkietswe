@@ -1,3 +1,3 @@
-_**As an organizer I start from where the world is, as it is, not as I would like it to be.**_
+_**I gave my life to become the person I am right now. Was it worth it?**_
 
-Saul Alinsky
+Richard Bach
