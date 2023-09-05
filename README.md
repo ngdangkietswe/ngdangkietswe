@@ -1,3 +1,3 @@
-_**Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.**_
+_**In seed time learn, in harvest teach, in winter enjoy.**_
 
-Blaise Pascal
+William Blake
