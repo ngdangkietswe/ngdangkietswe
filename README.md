@@ -1,3 +1,3 @@
-_**Correction does much, but encouragement does more.**_
+_**An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.**_
 
-Johann Wolfgang von Goethe
+Thomas Fuller
