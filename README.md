@@ -1,3 +1,3 @@
-_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
+_**Unless one is able to live fully in the present, the future is a hoax.**_
 
-Jonathan Swift
+Alan Watts
