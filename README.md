@@ -1,3 +1,3 @@
-_**Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.**_
+_**The future is completely open, and we are writing it moment to moment.**_
 
-Norman Vincent Peale
+Pema Chödrön
