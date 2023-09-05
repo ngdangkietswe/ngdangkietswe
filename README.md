@@ -1,3 +1,3 @@
-_**An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.**_
+_**Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.**_
 
-Thomas Fuller
+Jonathan Swift
