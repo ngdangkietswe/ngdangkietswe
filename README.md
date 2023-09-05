@@ -1,3 +1,3 @@
-_**I gave my life to become the person I am right now. Was it worth it?**_
+_**I begin with an idea and then it becomes something else.**_
 
-Richard Bach
+Pablo Picasso
