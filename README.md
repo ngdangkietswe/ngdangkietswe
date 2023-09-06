@@ -1,3 +1,3 @@
-_**They can do all because they think they can.**_
+_**I know not age, nor weariness nor defeat.**_
 
-Virgil
+Rose Kennedy
