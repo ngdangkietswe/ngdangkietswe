@@ -1,3 +1,3 @@
-_**I know not age, nor weariness nor defeat.**_
+_**To study and not think is a waste. To think and not study is dangerous.**_
 
-Rose Kennedy
+Confucius
