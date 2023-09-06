@@ -1,3 +1,3 @@
-_**Positive thinking will let you do everything better than negative thinking will.**_
+_**He has no enemies, but is intensely disliked by his friends.**_
 
-Zig Ziglar
+Oscar Wilde
