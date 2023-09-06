@@ -1,3 +1,3 @@
-_**Silence is the sleep that nourishes wisdom.**_
+_**If I had only known, I would have been a locksmith.**_
 
-Francis Bacon
+Albert Einstein
