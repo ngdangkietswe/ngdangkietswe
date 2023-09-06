@@ -1,3 +1,3 @@
-_**Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.**_
+_**Time is the most valuable thing a man can spend.**_
 
-Mariella Frostrup
+Theophrastus
