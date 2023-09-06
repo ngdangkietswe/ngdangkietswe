@@ -1,3 +1,3 @@
-_**There is nothing in a caterpillar that tells you it's going to be a butterfly.**_
+_**Silence is the sleep that nourishes wisdom.**_
 
-Buckminster Fuller
+Francis Bacon
