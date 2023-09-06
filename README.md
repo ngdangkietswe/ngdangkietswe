@@ -1,3 +1,3 @@
-_**There is nothing so useless as doing efficiently that which should not be done at all.**_
+_**Think like a man of action; act like a man of thought.**_
 
-Peter Drucker
+Henri Bergson
