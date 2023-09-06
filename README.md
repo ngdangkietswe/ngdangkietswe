@@ -1,3 +1,3 @@
-_**To study and not think is a waste. To think and not study is dangerous.**_
+_**There is nothing so useless as doing efficiently that which should not be done at all.**_
 
-Confucius
+Peter Drucker
