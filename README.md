@@ -1,3 +1,3 @@
-_**There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.**_
+_**The foolish man seeks happiness in the distance, the wise grows it under his feet.**_
 
-Mark Twain
+James Oppenheim
