@@ -1,3 +1,3 @@
-_**Happiness does not come from having much, but from being attached to little.**_
+_**People may doubt what you say, but they will believe what you do.**_
 
-Cheng Yen
+Lewis Cass
