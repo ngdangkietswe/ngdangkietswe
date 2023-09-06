@@ -1,3 +1,3 @@
-_**Doing nothing is better than being busy doing nothing.**_
+_**Ideas pull the trigger, but instinct loads the gun.**_
 
-Laozi
+Don Marquis
