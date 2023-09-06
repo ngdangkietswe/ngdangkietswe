@@ -1,3 +1,3 @@
-_**People may doubt what you say, but they will believe what you do.**_
+_**Positive thinking will let you do everything better than negative thinking will.**_
 
-Lewis Cass
+Zig Ziglar
