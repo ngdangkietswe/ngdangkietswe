@@ -1,3 +1,3 @@
-_**If I had only known, I would have been a locksmith.**_
+_**Without courage, wisdom bears no fruit.**_
 
-Albert Einstein
+Baltasar Gracián
