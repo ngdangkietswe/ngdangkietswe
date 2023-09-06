@@ -1,3 +1,3 @@
-_**By believing passionately in something that does not yet exist, we create it.**_
+_**The shoe that fits one person pinches another; there is no recipe for living that suits all cases.**_
 
-Nikos Kazantzakis
+Carl Jung
