@@ -1,3 +1,3 @@
-_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
+_**By believing passionately in something that does not yet exist, we create it.**_
 
-Honoré de Balzac
+Nikos Kazantzakis
