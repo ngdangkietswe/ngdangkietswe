@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**Happiness does not come from having much, but from being attached to little.**_
 
-Henri Bergson
+Cheng Yen
