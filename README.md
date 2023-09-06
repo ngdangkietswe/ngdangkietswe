@@ -1,3 +1,3 @@
-_**The shoe that fits one person pinches another; there is no recipe for living that suits all cases.**_
+_**Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.**_
 
-Carl Jung
+Marcus Aurelius
