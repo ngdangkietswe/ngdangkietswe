@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**Be sure you put your feet in the right place, then stand firm.**_
 
-Plato
+Abraham Lincoln
