@@ -1,3 +1,3 @@
-_**Conditions fall apart. Persist with diligence.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-The Buddha
+Plato
