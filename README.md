@@ -1,3 +1,3 @@
-_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
+_**If you have knowledge, let others light their candles in it.**_
 
-Henry David Thoreau
+Margaret Fuller
