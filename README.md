@@ -1,3 +1,3 @@
-_**Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.**_
+_**When times are bad is when the real entrepreneurs emerge.**_
 
-The Buddha
+Robert Kiyosaki
