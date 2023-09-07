@@ -1,3 +1,3 @@
-_**But man is not made for defeat. A man can be destroyed but not defeated.**_
+_**I know not age, nor weariness nor defeat.**_
 
-Ernest Hemingway
+Rose Kennedy
