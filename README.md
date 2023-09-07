@@ -1,3 +1,3 @@
-_**No snowflake in an avalanche ever feels responsible.**_
+_**Those that know, do. Those that understand, teach.**_
 
-Voltaire
+Aristotle
