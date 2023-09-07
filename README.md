@@ -1,3 +1,3 @@
-_**He has no enemies, but is intensely disliked by his friends.**_
+_**All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.**_
 
-Oscar Wilde
+Alexis Carrel
