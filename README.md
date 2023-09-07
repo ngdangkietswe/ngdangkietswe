@@ -1,3 +1,3 @@
-_**Continuous effort - not strength or intelligence - is the key to unlocking our potential.**_
+_**But man is not made for defeat. A man can be destroyed but not defeated.**_
 
-Winston Churchill
+Ernest Hemingway
