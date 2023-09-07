@@ -1,3 +1,3 @@
-_**Victory belongs to the most persevering.**_
+_**It is far better to be alone, than to be in bad company.**_
 
-Napoleon
+George Washington
