@@ -1,3 +1,3 @@
-_**In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-Harold Geneen
+Plato
