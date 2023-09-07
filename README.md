@@ -1,3 +1,3 @@
-_**Kindness is the golden chain by which society is bound together.**_
+_**Conditions fall apart. Persist with diligence.**_
 
-Johann Wolfgang von Goethe
+The Buddha
