@@ -1,3 +1,3 @@
-_**Good actions give strength to ourselves and inspire good actions in others.**_
+_**However rare true love may be, it is less so than true friendship.**_
 
-Plato
+François de La Rochefoucauld
