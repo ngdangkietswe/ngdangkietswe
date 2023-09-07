@@ -1,3 +1,3 @@
-_**Be sure you put your feet in the right place, then stand firm.**_
+_**No snowflake in an avalanche ever feels responsible.**_
 
-Abraham Lincoln
+Voltaire
