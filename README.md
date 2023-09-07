@@ -1,3 +1,3 @@
-_**The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.**_
+_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
 
-Michelangelo
+Henry David Thoreau
