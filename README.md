@@ -1,3 +1,3 @@
-_**However rare true love may be, it is less so than true friendship.**_
+_**If you don't know where you are going, you will probably end up somewhere else.**_
 
-François de La Rochefoucauld
+Laurence J. Peter
