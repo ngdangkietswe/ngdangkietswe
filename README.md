@@ -1,3 +1,3 @@
-_**If you don't know where you are going, you will probably end up somewhere else.**_
+_**Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.**_
 
-Laurence J. Peter
+The Buddha
