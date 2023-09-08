@@ -1,3 +1,3 @@
-_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
+_**It's easier to resist at the beginning than at the end.**_
 
-Jerome
+Leonardo da Vinci
