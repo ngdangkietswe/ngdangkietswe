@@ -1,3 +1,3 @@
-_**Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.**_
+_**The place to improve the world is first in one's own heart and head and hands.**_
 
-Steven Van Zandt
+Robert M. Pirsig
