@@ -1,3 +1,3 @@
-_**I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.**_
+_**Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.**_
 
-Marilyn Monroe
+Steven Van Zandt
