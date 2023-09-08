@@ -1,3 +1,3 @@
-_**It's easier to resist at the beginning than at the end.**_
+_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
 
-Leonardo da Vinci
+Winston Churchill
