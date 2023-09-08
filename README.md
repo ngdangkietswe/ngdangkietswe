@@ -1,3 +1,3 @@
-_**Can you imagine what I would do if I could do all I can?**_
+_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
 
-Sun Tzu
+Jerome
