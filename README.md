@@ -1,3 +1,3 @@
-_**Kind words can be short and easy to speak, but their echoes are truly endless.**_
+_**On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.**_
 
-Mother Teresa
+Edward Young
