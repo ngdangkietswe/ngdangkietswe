@@ -1,3 +1,3 @@
-_**Knowing is not enough; we must apply. Willing is not enough; we must do.**_
+_**Success is not final; failure is not fatal: it is the courage to continue that counts.**_
 
-Johann Wolfgang von Goethe
+Winston Churchill
