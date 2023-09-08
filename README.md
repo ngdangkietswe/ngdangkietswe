@@ -1,3 +1,3 @@
-_**Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right.**_
+_**Good actions give strength to ourselves and inspire good actions in others.**_
 
-Abraham Lincoln
+Plato
