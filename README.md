@@ -1,3 +1,3 @@
-_**The place to improve the world is first in one's own heart and head and hands.**_
+_**Good, better, best. Never let it rest. ‘Til your good is better and your better is best.**_
 
-Robert M. Pirsig
+Jerome
