@@ -1,3 +1,3 @@
-_**Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.**_
+_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
 
-Winston Churchill
+Albert Camus
