@@ -1,3 +1,3 @@
-_**Life isn't about finding yourself. Life is about creating yourself.**_
+_**Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.**_
 
-Bernard Shaw
+Thomas Edison
