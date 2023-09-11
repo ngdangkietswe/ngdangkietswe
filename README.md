@@ -1,3 +1,3 @@
-_**Yesterday I dared to struggle. Today I dare to win.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Bernadette Devlin
+Henry Wadsworth Longfellow
