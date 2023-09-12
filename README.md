@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**Much wisdom often goes with fewest words.**_
 
-Henry Wadsworth Longfellow
+Sophocles
