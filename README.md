@@ -1,3 +1,3 @@
-_**Music in the soul can be heard by the universe.**_
+_**An ounce of emotion is equal to a ton of facts.**_
 
-Laozi
+John Junor
