@@ -1,3 +1,3 @@
-_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
+_**Music in the soul can be heard by the universe.**_
 
-Confucius
+Laozi
