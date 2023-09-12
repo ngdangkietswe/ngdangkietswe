@@ -1,3 +1,3 @@
-_**Much wisdom often goes with fewest words.**_
+_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
 
-Sophocles
+Confucius
