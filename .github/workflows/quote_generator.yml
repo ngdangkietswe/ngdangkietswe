@@ -80,7 +80,5 @@ jobs:
           to: ${{ secrets.TELEGRAM_ID }}
           token: ${{ secrets.TELEGRAM_TOKEN }}
           message: |
-            ${{ github.actor }} created commit;
-            Commit message: Updated README.md at ${{ env.TIMESTAMP_COMMIT }}
-            Repository: ${{ github.repository }}
-            See changes: https://github.com/${{ github.repository }}/commit/${{github.sha}}
+            'New commit :point_down:'
+            https://github.com/${{ github.repository }}/commit/${{github.sha}}
