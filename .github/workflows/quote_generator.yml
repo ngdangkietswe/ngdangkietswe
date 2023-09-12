@@ -8,7 +8,8 @@ on:
 jobs:
   build:
     runs-on: ubuntu-latest
-
+    env:
+      TIMESTAMP_COMMIT: $(TZ=Asia/Ho_Chi_Minh date +"%Y-%m-%d %H:%M:%S %Z")
     steps:
       - name: Checkout code
         uses: actions/checkout@v2
@@ -39,9 +40,8 @@ jobs:
         run: |
           git config --global user.email "kietnguyen17052001@gmail.com"
           git config --global user.name "ngdangkiet"
-          timestamp=$(TZ=Asia/Ho_Chi_Minh date +"%Y-%m-%d %H:%M:%S %Z")
           git add .
-          git commit -m "Updated README.md at $timestamp" || echo "No changes to commit"
+          git commit -m "Updated README.md at ${{ env.TIMESTAMP_COMMIT }}" || echo "No changes to commit"
           git push
 
       - name: Extract branch name
@@ -81,6 +81,6 @@ jobs:
           token: ${{ secrets.TELEGRAM_TOKEN }}
           message: |
             ${{ github.actor }} created commit;
-            Commit message: ${{ github.event.commits[0].message }}
+            Commit message: Updated README.md at ${{ env.TIMESTAMP_COMMIT }}
             Repository: ${{ github.repository }}
             See changes: https://github.com/${{ github.repository }}/commit/${{github.sha}}
