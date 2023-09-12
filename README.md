@@ -1,3 +1,3 @@
-_**Remember always that you not only have the right to be an individual, you have an obligation to be one.**_
+_**The wisest men follow their own direction.**_
 
-Eleanor Roosevelt
+Euripides
