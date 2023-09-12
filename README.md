@@ -1,3 +1,3 @@
-_**An ounce of emotion is equal to a ton of facts.**_
+_**Great acts are made up of small deeds.**_
 
-John Junor
+Laozi
