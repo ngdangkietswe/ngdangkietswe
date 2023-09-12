@@ -80,5 +80,5 @@ jobs:
           to: ${{ secrets.TELEGRAM_ID }}
           token: ${{ secrets.TELEGRAM_TOKEN }}
           message: |
-            'New commit :point_down:'
+            New commit 👇
             https://github.com/${{ github.repository }}/commit/${{github.sha}}
