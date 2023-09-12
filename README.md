@@ -1,3 +1,3 @@
-_**Great acts are made up of small deeds.**_
+_**Remember always that you not only have the right to be an individual, you have an obligation to be one.**_
 
-Laozi
+Eleanor Roosevelt
