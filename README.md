@@ -1,3 +1,3 @@
-_**The wisest men follow their own direction.**_
+_**The most successful people are those who are good at plan B.**_
 
-Euripides
+James A. Yorke
