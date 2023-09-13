@@ -1,3 +1,3 @@
-_**The most successful people are those who are good at plan B.**_
+_**The best argument against democracy is a five-minute conversation with the average voter.**_
 
-James A. Yorke
+Winston Churchill
