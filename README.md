@@ -1,3 +1,3 @@
-_**The best argument against democracy is a five-minute conversation with the average voter.**_
+_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
 
-Winston Churchill
+Abraham Lincoln
