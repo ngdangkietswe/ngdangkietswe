@@ -1,3 +1,3 @@
-_**Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.**_
+_**Dost thou love life? Then do not squander time, for that is the stuff life is made of.**_
 
-Abraham Lincoln
+Benjamin Franklin
