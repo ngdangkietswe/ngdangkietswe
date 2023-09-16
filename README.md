@@ -1,3 +1,3 @@
-_**There is no greater harm than that of time wasted.**_
+_**A good head and a good heart are always a formidable combination.**_
 
-Michelangelo
+Nelson Mandela
