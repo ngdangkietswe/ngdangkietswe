@@ -1,3 +1,3 @@
-_**Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.**_
+_**Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark.**_
 
-Blaise Pascal
+Henri-Frédéric Amiel
