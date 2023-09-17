@@ -1,3 +1,3 @@
-_**Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark.**_
+_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
 
-Henri-Frédéric Amiel
+Honoré de Balzac
