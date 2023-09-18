@@ -1,3 +1,3 @@
-_**Life is 10% what happens to you and 90% how you react to it.**_
+_**A friend is someone who gives you total freedom to be yourself.**_
 
-Chuck Swindoll
+Jim Morrison
