@@ -1,3 +1,3 @@
-_**The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.**_
+_**Life is 10% what happens to you and 90% how you react to it.**_
 
-Honoré de Balzac
+Chuck Swindoll
