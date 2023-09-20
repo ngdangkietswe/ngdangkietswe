@@ -1,3 +1,3 @@
-_**Knowing is not enough; we must apply!**_
+_**If you change the way you look at things, the things you look at change.**_
 
-Johann Wolfgang von Goethe
+Wayne Dyer
