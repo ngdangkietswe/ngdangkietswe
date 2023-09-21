@@ -1,3 +1,3 @@
-_**Nothing is at last sacred but the integrity of your own mind.**_
+_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
 
-Ralph Waldo Emerson
+Alfred Adler
