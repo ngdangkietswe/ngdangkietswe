@@ -1,3 +1,3 @@
-_**There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**_
+_**Nothing is at last sacred but the integrity of your own mind.**_
 
-Albert Einstein
+Ralph Waldo Emerson
