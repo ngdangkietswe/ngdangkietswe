@@ -1,3 +1,3 @@
-_**I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, and wear Reebok.**_
+_**The world makes way for the man who knows where he is going.**_
 
-Shaquille O'Neal
+Ralph Waldo Emerson
