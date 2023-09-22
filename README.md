@@ -1,3 +1,3 @@
-_**Trust only movement. Life happens at the level of events, not of words. Trust movement.**_
+_**I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, and wear Reebok.**_
 
-Alfred Adler
+Shaquille O'Neal
