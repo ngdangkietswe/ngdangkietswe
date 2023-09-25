@@ -1,3 +1,3 @@
-_**Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.**_
+_**Yesterday I dared to struggle. Today I dare to win.**_
 
-The Buddha
+Bernadette Devlin
