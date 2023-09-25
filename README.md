@@ -1,3 +1,3 @@
-_**Yesterday I dared to struggle. Today I dare to win.**_
+_**He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.**_
 
-Bernadette Devlin
+William C. Menninger
