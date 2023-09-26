@@ -1,3 +1,3 @@
-_**Many sophisticated, intelligent people lack wisdom and common sense.**_
+_**Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.**_
 
-Joyce Meyer
+Carl Jung
