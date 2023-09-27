@@ -1,3 +1,3 @@
-_**Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.**_
+_**If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.**_
 
-Jim Rohn
+Vusi Mahlasela
