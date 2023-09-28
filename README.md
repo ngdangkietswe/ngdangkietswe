@@ -1,3 +1,3 @@
-_**Life is the flower for which love is the honey.**_
+_**Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.**_
 
-Victor Hugo
+Rumi
