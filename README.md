@@ -1,3 +1,3 @@
-_**Remember that the most valuable antiques are dear old friends.**_
+_**Trust yourself. You know more than you think you do.**_
 
-H. Jackson Brown Jr.
+Benjamin Spock
