@@ -1,3 +1,3 @@
-_**We choose our joys and sorrows long before we experience them.**_
+_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
 
-Kahlil Gibran
+François de La Rochefoucauld
