@@ -1,3 +1,3 @@
-_**Trust yourself. You know more than you think you do.**_
+_**We choose our joys and sorrows long before we experience them.**_
 
-Benjamin Spock
+Kahlil Gibran
