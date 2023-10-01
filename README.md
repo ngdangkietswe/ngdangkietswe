@@ -1,3 +1,3 @@
-_**In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.**_
+_**Only those who dare to fail greatly can ever achieve greatly.**_
 
-François de La Rochefoucauld
+Robert F. Kennedy
