@@ -1,3 +1,3 @@
-_**I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.**_
+_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
 
-John F. Kennedy
+Mignon McLaughlin
