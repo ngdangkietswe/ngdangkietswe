@@ -1,3 +1,3 @@
-_**It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.**_
+_**Beware of false knowledge; it is more dangerous than ignorance.**_
 
-Mignon McLaughlin
+Bernard Shaw
