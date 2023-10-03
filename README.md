@@ -1,3 +1,3 @@
-_**Things that were hard to bear are sweet to remember.**_
+_**Habit, if not resisted, soon becomes necessity.**_
 
-Seneca the Younger
+Augustine of Hippo
