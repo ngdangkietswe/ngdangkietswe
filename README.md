@@ -1,3 +1,3 @@
-_**Beware of false knowledge; it is more dangerous than ignorance.**_
+_**Things that were hard to bear are sweet to remember.**_
 
-Bernard Shaw
+Seneca the Younger
