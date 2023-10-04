@@ -1,3 +1,3 @@
-_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
+_**Always bear in mind that your own resolution to succeed is more important than any one thing.**_
 
-Henry David Thoreau
+Abraham Lincoln
