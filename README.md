@@ -1,3 +1,3 @@
-_**Habit, if not resisted, soon becomes necessity.**_
+_**Friends... they cherish one another's hopes. They are kind to one another's dreams.**_
 
-Augustine of Hippo
+Henry David Thoreau
