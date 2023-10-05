@@ -1,3 +1,3 @@
-_**Always bear in mind that your own resolution to succeed is more important than any one thing.**_
+_**Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.**_
 
-Abraham Lincoln
+Richard Bach
