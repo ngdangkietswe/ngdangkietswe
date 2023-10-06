@@ -1,3 +1,3 @@
-_**Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.**_
+_**Time you enjoyed wasting was not wasted.**_
 
-Arthur Rubinstein
+John Lennon
