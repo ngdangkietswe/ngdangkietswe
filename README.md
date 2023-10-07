@@ -1,3 +1,3 @@
-_**Time you enjoyed wasting was not wasted.**_
+_**No man is free who is not master of himself.**_
 
-John Lennon
+Epictetus
