@@ -1,3 +1,3 @@
-_**No man is free who is not master of himself.**_
+_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
 
-Epictetus
+Joseph Roux
