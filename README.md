@@ -1,3 +1,3 @@
-_**A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.**_
+_**Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.**_
 
-Joseph Roux
+Eknath Easwaran
