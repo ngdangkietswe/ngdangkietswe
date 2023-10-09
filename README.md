@@ -1,3 +1,3 @@
-_**A true friend is the most precious of all possessions and the one we take the least thought about acquiring.**_
+_**A thing well said will be wit in all languages.**_
 
-François de La Rochefoucauld
+John Dryden
