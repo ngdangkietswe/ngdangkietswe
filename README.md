@@ -1,3 +1,3 @@
-_**Love is flower like; Friendship is like a sheltering tree.**_
+_**A true friend is the most precious of all possessions and the one we take the least thought about acquiring.**_
 
-Samuel Taylor Coleridge
+François de La Rochefoucauld
