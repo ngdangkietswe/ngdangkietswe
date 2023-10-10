@@ -1,3 +1,3 @@
-_**You can't stop the waves, but you can learn to surf.**_
+_**I have learned that to be with those I like is enough.**_
 
-Jon Kabat-Zinn
+Walt Whitman
