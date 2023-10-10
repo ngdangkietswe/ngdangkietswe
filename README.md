@@ -1,3 +1,3 @@
-_**A thing well said will be wit in all languages.**_
+_**You can't stop the waves, but you can learn to surf.**_
 
-John Dryden
+Jon Kabat-Zinn
