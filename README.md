@@ -1,3 +1,3 @@
-_**Ability will never catch up with the demand for it.**_
+_**Wisdom is the supreme part of happiness.**_
 
-Confucius
+Sophocles
