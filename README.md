@@ -1,3 +1,3 @@
-_**I have learned that to be with those I like is enough.**_
+_**Ability will never catch up with the demand for it.**_
 
-Walt Whitman
+Confucius
