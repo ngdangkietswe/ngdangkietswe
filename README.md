@@ -1,3 +1,3 @@
-_**Wisdom is the supreme part of happiness.**_
+_**The only limit to your impact is your imagination and commitment.**_
 
-Sophocles
+Tony Robbins
