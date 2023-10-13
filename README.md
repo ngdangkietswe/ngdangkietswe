@@ -1,3 +1,3 @@
-_**A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.**_
+_**I believe in one thing only, the power of human will.**_
 
-William C. Menninger
+Joseph Stalin
