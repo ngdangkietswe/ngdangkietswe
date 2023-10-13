@@ -1,3 +1,3 @@
-_**I believe in one thing only, the power of human will.**_
+_**When in doubt, tell the truth.**_
 
-Joseph Stalin
+Mark Twain
