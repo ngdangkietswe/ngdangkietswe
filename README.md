@@ -1,3 +1,3 @@
-_**When in doubt, tell the truth.**_
+_**The essence of true friendship is to make allowance for another's little lapses.**_
 
-Mark Twain
+Ovid
