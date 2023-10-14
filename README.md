@@ -1,3 +1,3 @@
-_**The essence of true friendship is to make allowance for another's little lapses.**_
+_**Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.**_
 
-Ovid
+Zhuang Zhou
