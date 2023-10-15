@@ -1,3 +1,3 @@
-_**Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.**_
+_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
 
-Zhuang Zhou
+Charles Caleb Colton
