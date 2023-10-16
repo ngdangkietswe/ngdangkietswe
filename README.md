@@ -1,3 +1,3 @@
-_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
+_**I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.**_
 
-Charles Caleb Colton
+Woody Allen
