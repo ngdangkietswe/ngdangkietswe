@@ -1,3 +1,3 @@
-_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
+_**Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.**_
 
-François de La Rochefoucauld
+Anne Frank
