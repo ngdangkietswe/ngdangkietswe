@@ -1,3 +1,3 @@
-_**I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.**_
+_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
 
-Woody Allen
+François de La Rochefoucauld
