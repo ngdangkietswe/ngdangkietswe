@@ -1,3 +1,3 @@
-_**Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.**_
+_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
 
-Anne Frank
+Charles Lindbergh
