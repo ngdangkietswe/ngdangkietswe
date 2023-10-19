@@ -1,3 +1,3 @@
-_**Experience is simply the name we give our mistakes.**_
+_**The only limit to our realization of tomorrow will be our doubts of today.**_
 
-Oscar Wilde
+Franklin D. Roosevelt
