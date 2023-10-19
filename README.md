@@ -1,3 +1,3 @@
-_**The only limit to our realization of tomorrow will be our doubts of today.**_
+_**No act of kindness, no matter how small, is ever wasted.**_
 
-Franklin D. Roosevelt
+Aesop
