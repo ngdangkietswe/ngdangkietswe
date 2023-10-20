@@ -1,3 +1,3 @@
-_**No act of kindness, no matter how small, is ever wasted.**_
+_**Never promise more than you can perform.**_
 
-Aesop
+Publilius Syrus
