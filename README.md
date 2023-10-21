@@ -1,3 +1,3 @@
-_**Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.**_
+_**Self-trust is the first secret of success.**_
 
-Bernice Reagon
+Ralph Waldo Emerson
