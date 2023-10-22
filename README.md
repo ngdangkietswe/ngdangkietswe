@@ -1,3 +1,3 @@
-_**Love is the only force capable of transforming an enemy into a friend.**_
+_**Friendship is always a sweet responsibility, never an opportunity.**_
 
-Martin Luther King Jr.
+Kahlil Gibran
