@@ -1,3 +1,3 @@
-_**Self-trust is the first secret of success.**_
+_**Love is the only force capable of transforming an enemy into a friend.**_
 
-Ralph Waldo Emerson
+Martin Luther King Jr.
