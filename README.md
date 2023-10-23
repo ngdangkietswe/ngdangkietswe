@@ -1,3 +1,3 @@
-_**Friendship is always a sweet responsibility, never an opportunity.**_
+_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
 
-Kahlil Gibran
+H. Jackson Brown Jr.
