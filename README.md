@@ -1,3 +1,3 @@
-_**Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.**_
+_**Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.**_
 
-H. Jackson Brown Jr.
+Ernie Banks
