@@ -1,3 +1,3 @@
-_**It is in your moments of decision that your destiny is shaped.**_
+_**Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.**_
 
-Tony Robbins
+M. Scott Peck
