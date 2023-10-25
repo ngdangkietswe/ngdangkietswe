@@ -1,3 +1,3 @@
-_**Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.**_
+_**The friendship that can cease has never been real.**_
 
-M. Scott Peck
+Jerome
