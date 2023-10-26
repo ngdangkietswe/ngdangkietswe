@@ -1,3 +1,3 @@
-_**In order to succeed, we must first believe that we can.**_
+_**I do not know the American gentleman, god forgive me for putting two such words together.**_
 
-Nikos Kazantzakis
+Charles Dickens
