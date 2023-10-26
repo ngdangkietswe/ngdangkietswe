@@ -1,3 +1,3 @@
-_**I do not know the American gentleman, god forgive me for putting two such words together.**_
+_**I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.**_
 
-Charles Dickens
+Oprah Winfrey
