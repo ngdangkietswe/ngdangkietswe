@@ -1,3 +1,3 @@
-_**I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.**_
+_**Technology… the knack of so arranging the world that we don't have to experience it.**_
 
-Oprah Winfrey
+Max Frisch
