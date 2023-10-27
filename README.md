@@ -1,3 +1,3 @@
-_**Technology… the knack of so arranging the world that we don't have to experience it.**_
+_**Every great advance in science has issued from a new audacity of the imagination.**_
 
-Max Frisch
+John Dewey
