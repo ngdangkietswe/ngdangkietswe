@@ -1,3 +1,3 @@
-_**Good advice is always certain to be ignored, but that's no reason not to give it.**_
+_**Life is like a sewer. What you get out of it depends on what you put into it.**_
 
-Agatha Christie
+Tom Lehrer
