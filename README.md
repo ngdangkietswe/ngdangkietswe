@@ -1,3 +1,3 @@
-_**Think as a wise man but communicate in the language of the people.**_
+_**You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.**_
 
-William Butler Yeats
+Naguib Mahfouz
