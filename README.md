@@ -1,3 +1,3 @@
-_**Life is like a sewer. What you get out of it depends on what you put into it.**_
+_**Think as a wise man but communicate in the language of the people.**_
 
-Tom Lehrer
+William Butler Yeats
