@@ -1,3 +1,3 @@
-_**You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.**_
+_**No man can succeed in a line of endeavor which he does not like.**_
 
-Naguib Mahfouz
+Napoleon Hill
