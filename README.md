@@ -1,3 +1,3 @@
-_**No man can succeed in a line of endeavor which he does not like.**_
+_**Who looks outside, dreams, who looks inside, awakes.**_
 
-Napoleon Hill
+Carl Jung
