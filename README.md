@@ -1,3 +1,3 @@
-_**Your big opportunity may be right where you are now.**_
+_**Yesterday's home runs don't win today's games.**_
 
-Napoleon Hill
+Babe Ruth
