@@ -1,3 +1,3 @@
-_**Yesterday's home runs don't win today's games.**_
+_**The farther backward you can look, the farther forward you can see.**_
 
-Babe Ruth
+Winston Churchill
