@@ -1,3 +1,3 @@
-_**If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.**_
+_**Coming together is a beginning; keeping together is progress; working together is success.**_
 
-Colin Powell
+Edward Everett Hale
