@@ -1,3 +1,3 @@
-_**Wisdom is always an overmatch for strength.**_
+_**When you come to the end of your rope, tie a knot and hang on.**_
 
-Phil Jackson
+Franklin D. Roosevelt
