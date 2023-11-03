@@ -1,3 +1,3 @@
-_**Coming together is a beginning; keeping together is progress; working together is success.**_
+_**Wisdom is always an overmatch for strength.**_
 
-Edward Everett Hale
+Phil Jackson
