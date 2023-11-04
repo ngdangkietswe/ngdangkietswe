@@ -1,3 +1,3 @@
-_**When you come to the end of your rope, tie a knot and hang on.**_
+_**Creativity comes from trust. Trust your instincts. And never hope more than you work.**_
 
-Franklin D. Roosevelt
+Rita Mae Brown
