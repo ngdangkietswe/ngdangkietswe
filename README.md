@@ -1,3 +1,3 @@
-_**Creativity comes from trust. Trust your instincts. And never hope more than you work.**_
+_**A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well.**_
 
-Rita Mae Brown
+Jeff Bezos
