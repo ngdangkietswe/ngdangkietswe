@@ -1,3 +1,3 @@
-_**A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well.**_
+_**The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.**_
 
-Jeff Bezos
+Booker T. Washington
