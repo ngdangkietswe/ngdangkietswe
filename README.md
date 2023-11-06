@@ -1,3 +1,3 @@
-_**Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.**_
+_**When you realize there is nothing lacking, the whole world belongs to you.**_
 
-The Buddha
+Laozi
