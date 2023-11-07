@@ -1,3 +1,3 @@
-_**To profit from good advice requires more wisdom than to give it.**_
+_**Trust is the lubrication that makes it possible for organizations to work.**_
 
-Wilson Mizner
+Warren Bennis
