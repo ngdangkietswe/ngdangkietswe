@@ -1,3 +1,3 @@
-_**When you realize there is nothing lacking, the whole world belongs to you.**_
+_**To profit from good advice requires more wisdom than to give it.**_
 
-Laozi
+Wilson Mizner
