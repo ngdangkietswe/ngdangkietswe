@@ -1,3 +1,3 @@
-_**Trust is the lubrication that makes it possible for organizations to work.**_
+_**Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.**_
 
-Warren Bennis
+Norman Vincent Peale
