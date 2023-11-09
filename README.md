@@ -1,3 +1,3 @@
-_**The best way to pay for a lovely moment is to enjoy it.**_
+_**Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.**_
 
-Richard Bach
+Blaise Pascal
