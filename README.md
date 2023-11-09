@@ -1,3 +1,3 @@
-_**Whatever we expect with confidence becomes our own self-fulfilling prophecy.**_
+_**The best way to pay for a lovely moment is to enjoy it.**_
 
-Brian Tracy
+Richard Bach
