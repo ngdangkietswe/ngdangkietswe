@@ -1,3 +1,3 @@
-_**You cannot have what you do not want.**_
+_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
 
-John Acosta
+H. Jackson Brown Jr.
