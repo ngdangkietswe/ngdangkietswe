@@ -1,3 +1,3 @@
-_**Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.**_
+_**You cannot have what you do not want.**_
 
-Blaise Pascal
+John Acosta
