@@ -1,3 +1,3 @@
-_**Wisdom, compassion, and courage are the three universally recognized moral qualities of men.**_
+_**Keep yourself to the sunshine and you cannot see the shadow.**_
 
-Confucius
+Helen Keller
