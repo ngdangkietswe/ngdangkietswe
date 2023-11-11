@@ -1,3 +1,3 @@
-_**Remember that a gesture of friendship, no matter how small, is always appreciated.**_
+_**Wisdom, compassion, and courage are the three universally recognized moral qualities of men.**_
 
-H. Jackson Brown Jr.
+Confucius
