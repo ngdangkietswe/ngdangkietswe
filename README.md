@@ -1,3 +1,3 @@
-_**Keep yourself to the sunshine and you cannot see the shadow.**_
+_**No one can make you feel inferior without your consent.**_
 
-Helen Keller
+Eleanor Roosevelt
