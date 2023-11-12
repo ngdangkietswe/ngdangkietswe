@@ -1,3 +1,3 @@
-_**No one can make you feel inferior without your consent.**_
+_**Once we accept our limits, we go beyond them.**_
 
-Eleanor Roosevelt
+Albert Einstein
