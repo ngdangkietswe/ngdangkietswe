@@ -1,3 +1,3 @@
-_**I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.**_
+_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
 
-Harbhajan Singh
+Albert Camus
