@@ -1,3 +1,3 @@
-_**People grow through experience if they meet life honestly and courageously. This is how character is built.**_
+_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
 
-Eleanor Roosevelt
+Henry David Thoreau
