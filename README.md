@@ -1,3 +1,3 @@
-_**If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.**_
+_**Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.**_
 
-Henry David Thoreau
+Laozi
