@@ -1,3 +1,3 @@
-_**He who controls others may be powerful, but he who has mastered himself is mightier still.**_
+_**Those who are free of resentful thoughts surely find peace.**_
 
-Laozi
+The Buddha
