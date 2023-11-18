@@ -1,3 +1,3 @@
-_**Those who are free of resentful thoughts surely find peace.**_
+_**How many cares one loses when one decides not to be something but to be someone.**_
 
-The Buddha
+Coco Chanel
