@@ -1,3 +1,3 @@
-_**How many cares one loses when one decides not to be something but to be someone.**_
+_**The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.**_
 
-Coco Chanel
+Anaïs Nin
