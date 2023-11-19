@@ -1,3 +1,3 @@
-_**The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.**_
+_**Attitude is a little thing that makes a big difference.**_
 
-Anaïs Nin
+Winston Churchill
