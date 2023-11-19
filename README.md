@@ -1,3 +1,3 @@
-_**Attitude is a little thing that makes a big difference.**_
+_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
 
-Winston Churchill
+René Descartes
