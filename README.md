@@ -1,3 +1,3 @@
-_**If you have knowledge, let others light their candles in it.**_
+_**I think somehow, we learn who we really are and then live with that decision.**_
 
-Margaret Fuller
+Eleanor Roosevelt
