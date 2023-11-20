@@ -1,3 +1,3 @@
-_**The greatest minds are capable of the greatest vices as well as of the greatest virtues.**_
+_**If you have knowledge, let others light their candles in it.**_
 
-René Descartes
+Margaret Fuller
