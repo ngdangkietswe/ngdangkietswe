@@ -1,3 +1,3 @@
-_**Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.**_
+_**If one way be better than another, that you may be sure is nature's way.**_
 
-Albert Schweitzer
+Aristotle
