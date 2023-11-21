@@ -1,3 +1,3 @@
-_**I think somehow, we learn who we really are and then live with that decision.**_
+_**Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.**_
 
-Eleanor Roosevelt
+Albert Schweitzer
