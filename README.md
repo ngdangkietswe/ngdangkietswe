@@ -1,3 +1,3 @@
-_**Ideas pull the trigger, but instinct loads the gun.**_
+_**The world is round so that friendship may encircle it.**_
 
-Don Marquis
+Pierre Teilhard de Chardin
