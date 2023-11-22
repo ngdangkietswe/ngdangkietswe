@@ -1,3 +1,3 @@
-_**If one way be better than another, that you may be sure is nature's way.**_
+_**Ideas pull the trigger, but instinct loads the gun.**_
 
-Aristotle
+Don Marquis
