@@ -1,3 +1,3 @@
-_**The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.**_
+_**Genius unrefined resembles a flash of lightning, but wisdom is like the sun.**_
 
-Carlos Castaneda
+Franz Grillparzer
