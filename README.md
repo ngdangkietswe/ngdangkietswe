@@ -1,3 +1,3 @@
-_**Wisdom alone is the science of other sciences.**_
+_**A friend is someone who gives you total freedom to be yourself.**_
 
-Plato
+Jim Morrison
