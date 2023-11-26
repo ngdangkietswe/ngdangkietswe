@@ -1,3 +1,3 @@
-_**Don't smother each other. No one can grow in the shade.**_
+_**Wisdom alone is the science of other sciences.**_
 
-Leo Buscaglia
+Plato
