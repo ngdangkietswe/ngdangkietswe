@@ -1,3 +1,3 @@
-_**Until you make peace with who you are, you'll never be content with what you have.**_
+_**To be what we are, and to become what we are capable of becoming, is the only end of life.**_
 
-Doris Mortman
+Robert Louis Stevenson
