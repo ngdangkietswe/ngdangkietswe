@@ -1,3 +1,3 @@
-_**A friend is someone who gives you total freedom to be yourself.**_
+_**Until you make peace with who you are, you'll never be content with what you have.**_
 
-Jim Morrison
+Doris Mortman
