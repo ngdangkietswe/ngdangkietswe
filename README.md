@@ -1,3 +1,3 @@
-_**To be what we are, and to become what we are capable of becoming, is the only end of life.**_
+_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
 
-Robert Louis Stevenson
+Michael Jordan
