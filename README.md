@@ -1,3 +1,3 @@
-_**If you accept the expectations of others, especially negative ones, then you never will change the outcome.**_
+_**It is through science that we prove, but through intuition that we discover.**_
 
-Michael Jordan
+Henri Poincaré
