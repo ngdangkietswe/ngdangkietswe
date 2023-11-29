@@ -1,3 +1,3 @@
-_**Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.**_
+_**Keep silence for the most part, and speak only when you must, and then briefly.**_
 
-Doug Larson
+Epictetus
