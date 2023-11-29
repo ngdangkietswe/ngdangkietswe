@@ -1,3 +1,3 @@
-_**It is through science that we prove, but through intuition that we discover.**_
+_**Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.**_
 
-Henri Poincaré
+Doug Larson
