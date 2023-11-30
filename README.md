@@ -1,3 +1,3 @@
-_**He who fears being conquered is sure of defeat.**_
+_**Technology is the campfire around which we tell our stories.**_
 
-Napoleon
+Laurie Anderson
