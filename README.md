@@ -1,3 +1,3 @@
-_**Keep silence for the most part, and speak only when you must, and then briefly.**_
+_**He who fears being conquered is sure of defeat.**_
 
-Epictetus
+Napoleon
