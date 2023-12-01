@@ -1,3 +1,3 @@
-_**The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.**_
+_**You can't cross the sea merely by standing and staring at the water.**_
 
-Charles Darwin
+Rabindranath Tagore
