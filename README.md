@@ -1,3 +1,3 @@
-_**You can't cross the sea merely by standing and staring at the water.**_
+_**A hero is no braver than an ordinary man, but he is braver five minutes longer.**_
 
-Rabindranath Tagore
+Ralph Waldo Emerson
