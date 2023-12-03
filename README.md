@@ -1,3 +1,3 @@
-_**When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.**_
+_**Well done is better than well said.**_
 
-Confucius
+Benjamin Franklin
