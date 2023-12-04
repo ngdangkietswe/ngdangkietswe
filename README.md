@@ -1,3 +1,3 @@
-_**Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.**_
+_**If you change the way you look at things, the things you look at change.**_
 
-Napoleon Hill
+Wayne Dyer
