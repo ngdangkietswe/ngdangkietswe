@@ -1,3 +1,3 @@
-_**If you change the way you look at things, the things you look at change.**_
+_**Fame usually comes to those who are thinking about something else.**_
 
-Wayne Dyer
+Oliver Wendell Holmes Jr.
