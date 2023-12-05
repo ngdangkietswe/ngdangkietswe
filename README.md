@@ -1,3 +1,3 @@
-_**Fame usually comes to those who are thinking about something else.**_
+_**Living at risk is jumping off the cliff and building your wings on the way down.**_
 
-Oliver Wendell Holmes Jr.
+Ray Bradbury
