@@ -1,3 +1,3 @@
-_**Living at risk is jumping off the cliff and building your wings on the way down.**_
+_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
 
-Ray Bradbury
+Mahatma Gandhi
