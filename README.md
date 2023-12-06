@@ -1,3 +1,3 @@
-_**The weak can never forgive. Forgiveness is the attribute of the strong.**_
+_**Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good.**_
 
-Mahatma Gandhi
+Ralph Waldo Emerson
