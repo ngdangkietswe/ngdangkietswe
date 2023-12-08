@@ -1,3 +1,3 @@
-_**Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.**_
+_**The first step to getting the things you want out of life is this: decide what you want.**_
 
-John McCain
+Ben Stein
