@@ -1,3 +1,3 @@
-_**The first step to getting the things you want out of life is this: decide what you want.**_
+_**Formula for success: under promise and over deliver.**_
 
-Ben Stein
+Tom Peters
