@@ -1,3 +1,3 @@
-_**Formula for success: under promise and over deliver.**_
+_**Inspiration exists, but it has to find us working.**_
 
-Tom Peters
+Pablo Picasso
