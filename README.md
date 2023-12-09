@@ -1,3 +1,3 @@
-_**Inspiration exists, but it has to find us working.**_
+_**The only time to buy these is on a day with no 'y' in it.**_
 
-Pablo Picasso
+Warren Buffett
