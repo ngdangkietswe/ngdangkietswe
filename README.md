@@ -1,3 +1,3 @@
-_**The only time to buy these is on a day with no 'y' in it.**_
+_**Nothing but heaven itself is better than a friend who is really a friend.**_
 
-Warren Buffett
+Plautus
