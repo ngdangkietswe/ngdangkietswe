@@ -1,3 +1,3 @@
-_**If you change the way you look at things, the things you look at change.**_
+_**What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.**_
 
-Wayne Dyer
+Sai Baba
