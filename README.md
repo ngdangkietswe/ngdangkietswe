@@ -1,3 +1,3 @@
-_**What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.**_
+_**A really great talent finds its happiness in execution.**_
 
-Sai Baba
+Johann Wolfgang von Goethe
