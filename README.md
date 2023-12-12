@@ -1,3 +1,3 @@
-_**A really great talent finds its happiness in execution.**_
+_**What we achieve inwardly will change outer reality.**_
 
-Johann Wolfgang von Goethe
+Plutarch
