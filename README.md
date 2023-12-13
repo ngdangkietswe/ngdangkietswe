@@ -1,3 +1,3 @@
-_**What we achieve inwardly will change outer reality.**_
+_**Reason and free inquiry are the only effectual agents against error.**_
 
-Plutarch
+Thomas Jefferson
