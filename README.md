@@ -1,3 +1,3 @@
-_**Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.**_
+_**When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.**_
 
-William Arthur Ward
+Abraham Lincoln
