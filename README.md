@@ -1,3 +1,3 @@
-_**For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.**_
+_**Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.**_
 
-Mary Kay Ash
+William Arthur Ward
