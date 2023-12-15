@@ -1,3 +1,3 @@
-_**Success is getting what you want. Happiness is wanting what you get.**_
+_**A friend to all is a friend to none.**_
 
-Dale Carnegie
+Aristotle
