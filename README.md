@@ -1,3 +1,3 @@
-_**A friend to all is a friend to none.**_
+_**Think like a man of action; act like a man of thought.**_
 
-Aristotle
+Henri Bergson
