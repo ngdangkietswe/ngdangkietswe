@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**Absence makes the heart grow fonder.**_
 
-Henri Bergson
+Thomas Haynes Bayly
