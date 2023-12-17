@@ -1,3 +1,3 @@
-_**Absence makes the heart grow fonder.**_
+_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
 
-Thomas Haynes Bayly
+Plato
