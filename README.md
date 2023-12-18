@@ -1,3 +1,3 @@
-_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
+_**Real magic in relationships means an absence of judgement of others.**_
 
-Napoleon Hill
+Wayne Dyer
