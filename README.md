@@ -1,3 +1,3 @@
-_**If you can't feed a hundred people, then feed just one.**_
+_**Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.**_
 
-Mother Teresa
+Napoleon Hill
