@@ -1,3 +1,3 @@
-_**To succeed, we must first believe that we can.**_
+_**Reality is merely an illusion, albeit a very persistent one.**_
 
-Michael Korda
+Albert Einstein
