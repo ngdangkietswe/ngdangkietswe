@@ -1,3 +1,3 @@
-_**Real magic in relationships means an absence of judgement of others.**_
+_**To succeed, we must first believe that we can.**_
 
-Wayne Dyer
+Michael Korda
