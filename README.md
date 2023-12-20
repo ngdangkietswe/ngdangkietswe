@@ -1,3 +1,3 @@
-_**A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.**_
+_**Beauty is not in the face; beauty is a light in the heart.**_
 
-Molière
+Kahlil Gibran
