@@ -1,3 +1,3 @@
-_**Reality is merely an illusion, albeit a very persistent one.**_
+_**A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.**_
 
-Albert Einstein
+Molière
