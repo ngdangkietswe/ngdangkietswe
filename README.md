@@ -1,3 +1,3 @@
-_**Beauty is not in the face; beauty is a light in the heart.**_
+_**Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.**_
 
-Kahlil Gibran
+Eleanor Roosevelt
