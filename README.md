@@ -1,3 +1,3 @@
-_**Friendship is the marriage of the soul, and this marriage is liable to divorce.**_
+_**If you only have a hammer, you tend to see every problem as a nail.**_
 
-Voltaire
+Abraham Maslow
