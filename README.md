@@ -1,3 +1,3 @@
-_**You won't skid if you stay in a rut.**_
+_**Honesty is the best policy.**_
 
-Kin Hubbard
+Benjamin Franklin
