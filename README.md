@@ -1,3 +1,3 @@
-_**Honesty is the best policy.**_
+_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
 
-Benjamin Franklin
+Anaïs Nin
