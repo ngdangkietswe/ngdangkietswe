@@ -1,3 +1,3 @@
-_**There is not one big cosmic meaning for all, there is only the meaning we each give to our life.**_
+_**Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.**_
 
-Anaïs Nin
+Napoleon Hill
