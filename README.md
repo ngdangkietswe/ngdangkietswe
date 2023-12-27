@@ -1,3 +1,3 @@
-_**Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.**_
+_**Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.**_
 
-Napoleon Hill
+Julie Morgenstern
