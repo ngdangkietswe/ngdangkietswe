@@ -1,3 +1,3 @@
-_**Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.**_
+_**We are all something, but none of us are everything.**_
 
-Julie Morgenstern
+Blaise Pascal
