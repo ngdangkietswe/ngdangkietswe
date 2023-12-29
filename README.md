@@ -1,3 +1,3 @@
-_**We are all something, but none of us are everything.**_
+_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
 
-Blaise Pascal
+Confucius
