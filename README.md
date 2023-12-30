@@ -1,3 +1,3 @@
-_**I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.**_
+_**Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.**_
 
-Confucius
+Bruce Lee
