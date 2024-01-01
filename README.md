@@ -1,3 +1,3 @@
-_**Happiness depends upon ourselves.**_
+_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
 
-Aristotle
+William Lyon Phelps
