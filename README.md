@@ -1,3 +1,3 @@
-_**This is the final test of a gentleman: his respect for those who can be of no possible value to him.**_
+_**Every day I remind myself that my inner and outer life are based on the labors of other men, living and dead, and that I must exert myself in order to give in the same measure as I have received and am still receiving.**_
 
-William Lyon Phelps
+Albert Einstein
