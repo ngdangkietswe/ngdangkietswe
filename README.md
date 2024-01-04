@@ -1,3 +1,3 @@
-_**Beauty is not in the face; beauty is a light in the heart.**_
+_**All action results from thought, so it is thoughts that matter.**_
 
-Kahlil Gibran
+Sai Baba
