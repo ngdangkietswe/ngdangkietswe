@@ -1,3 +1,3 @@
-_**All action results from thought, so it is thoughts that matter.**_
+_**If we are not fully ourselves, truly in the present moment, we miss everything.**_
 
-Sai Baba
+Thích Nhất Hạnh
