@@ -1,3 +1,3 @@
-_**If we are not fully ourselves, truly in the present moment, we miss everything.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Thích Nhất Hạnh
+Thomas Edison
