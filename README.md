@@ -1,3 +1,3 @@
-_**I have not failed. I've just found 10,000 ways that won't work.**_
+_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
 
-Thomas Edison
+George S. Patton
