@@ -1,3 +1,3 @@
-_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
+_**Sports do not build character. They reveal it.**_
 
-George S. Patton
+Heywood Broun
