@@ -1,3 +1,3 @@
-_**Decision is a risk rooted in the courage of being free.**_
+_**Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.**_
 
-Paul Tillich
+Harriet Tubman
