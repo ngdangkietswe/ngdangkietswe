@@ -1,3 +1,3 @@
-_**Nothing happens unless first we dream.**_
+_**A goal without a plan is just a wish.**_
 
-Carl Sandburg
+Larry Elder
