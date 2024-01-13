@@ -1,3 +1,3 @@
-_**A goal without a plan is just a wish.**_
+_**What lies behind us and what lies before us are tiny matters compared to what lies within us.**_
 
-Larry Elder
+Ralph Waldo Emerson
