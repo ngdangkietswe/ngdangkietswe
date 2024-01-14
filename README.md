@@ -1,3 +1,3 @@
-_**What lies behind us and what lies before us are tiny matters compared to what lies within us.**_
+_**Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.**_
 
-Ralph Waldo Emerson
+The Buddha
