@@ -1,3 +1,3 @@
-_**Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure.**_
+_**We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.**_
 
-The Buddha
+Marcia Fudge
