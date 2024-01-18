@@ -1,3 +1,3 @@
-_**He that is giddy thinks the world turns round.**_
+_**Friends are the siblings God never gave us.**_
 
-William Shakespeare
+Mencius
