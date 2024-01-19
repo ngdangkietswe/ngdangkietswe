@@ -1,3 +1,3 @@
-_**Friends are the siblings God never gave us.**_
+_**A man's growth is seen in the successive choirs of his friends**_
 
-Mencius
+Ralph Waldo Emerson
