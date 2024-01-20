@@ -1,3 +1,3 @@
-_**A man's growth is seen in the successive choirs of his friends**_
+_**The best thing about the future is that it only comes one day at a time.**_
 
-Ralph Waldo Emerson
+Abraham Lincoln
