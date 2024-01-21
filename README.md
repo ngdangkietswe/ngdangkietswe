@@ -1,3 +1,3 @@
-_**The best thing about the future is that it only comes one day at a time.**_
+_**Technology is a word that describes something that doesn't work yet.**_
 
-Abraham Lincoln
+Douglas Adams
