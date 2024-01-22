@@ -1,3 +1,3 @@
-_**Technology is a word that describes something that doesn't work yet.**_
+_**Imagination will often carry us to worlds that never were. But without it we go nowhere.**_
 
-Douglas Adams
+Carl Sagan
