@@ -1,3 +1,3 @@
-_**Imagination will often carry us to worlds that never were. But without it we go nowhere.**_
+_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
 
-Carl Sagan
+Arthur Conan Doyle
