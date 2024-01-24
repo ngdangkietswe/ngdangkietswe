@@ -1,3 +1,3 @@
-_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
+_**To get the full value of joy you must have someone to divide it with.**_
 
-Arthur Conan Doyle
+Mark Twain
