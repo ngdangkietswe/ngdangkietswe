@@ -1,3 +1,3 @@
-_**To get the full value of joy you must have someone to divide it with.**_
+_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
 
-Mark Twain
+Thomas Edison
