@@ -1,3 +1,3 @@
-_**The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.**_
+_**Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.**_
 
-Thomas Edison
+Robert Fulghum
