@@ -1,3 +1,3 @@
-_**Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.**_
+_**Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.**_
 
-Robert Fulghum
+Helen Keller
