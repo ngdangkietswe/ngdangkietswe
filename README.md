@@ -1,3 +1,3 @@
-_**Every friendship is different because everyone's personality is different.**_
+_**He who angers you conquers you.**_
 
-Nargis Fakhri
+Elizabeth Kenny
