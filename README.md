@@ -1,3 +1,3 @@
-_**Your sacred space is where you can find yourself again and again.**_
+_**The ballot is stronger than the bullet.**_
 
-Joseph Campbell
+Abraham Lincoln
