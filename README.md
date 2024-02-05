@@ -1,3 +1,3 @@
-_**The ballot is stronger than the bullet.**_
+_**Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.**_
 
-Abraham Lincoln
+John Adams
