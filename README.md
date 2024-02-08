@@ -1,3 +1,3 @@
-_**To lead people walk behind them.**_
+_**What is a weed? A plant whose virtues have not yet been discovered.**_
 
-Laozi
+Ralph Waldo Emerson
