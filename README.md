@@ -1,3 +1,3 @@
-_**What is a weed? A plant whose virtues have not yet been discovered.**_
+_**Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.**_
 
-Ralph Waldo Emerson
+Aristotle
