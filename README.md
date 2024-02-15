@@ -1,3 +1,3 @@
-_**Love is the flower you've got to let grow.**_
+_**The sum of wisdom is that time is never lost that is devoted to work.**_
 
-John Lennon
+Ralph Waldo Emerson
