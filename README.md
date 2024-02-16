@@ -1,3 +1,3 @@
-_**The sum of wisdom is that time is never lost that is devoted to work.**_
+_**Ignorance never settles a question.**_
 
-Ralph Waldo Emerson
+Benjamin Disraeli
