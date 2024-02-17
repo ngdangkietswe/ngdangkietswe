@@ -1,3 +1,3 @@
-_**Ignorance never settles a question.**_
+_**Kindness is the golden chain by which society is bound together.**_
 
-Benjamin Disraeli
+Johann Wolfgang von Goethe
