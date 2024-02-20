@@ -1,3 +1,3 @@
-_**The best argument against democracy is a five-minute conversation with the average voter.**_
+_**A man's growth is seen in the successive choirs of his friends**_
 
-Winston Churchill
+Ralph Waldo Emerson
