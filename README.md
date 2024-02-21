@@ -1,3 +1,3 @@
-_**A man's growth is seen in the successive choirs of his friends**_
+_**If your actions inspire others to dream more, learn more, do more and become more, you are a leader.**_
 
-Ralph Waldo Emerson
+John Quincy Adams
