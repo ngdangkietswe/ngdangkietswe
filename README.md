@@ -1,3 +1,3 @@
-_**To bring anything into your life, imagine that it's already there.**_
+_**Gratitude is riches. Complaint is poverty.**_
 
-Richard Bach
+Doris Day
