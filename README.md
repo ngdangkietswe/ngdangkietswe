@@ -1,3 +1,3 @@
-_**Gratitude is riches. Complaint is poverty.**_
+_**Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.**_
 
-Doris Day
+Eknath Easwaran
