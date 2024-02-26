@@ -1,3 +1,3 @@
-_**Wisdom has its root in goodness, not goodness its root in wisdom.**_
+_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
 
-Ralph Waldo Emerson
+Francis of Assisi
