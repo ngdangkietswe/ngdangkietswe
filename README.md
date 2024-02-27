@@ -1,3 +1,3 @@
-_**Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.**_
+_**Ignorance and bungling with love are better than wisdom and skill without.**_
 
-Francis of Assisi
+Henry David Thoreau
