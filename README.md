@@ -1,3 +1,3 @@
-_**Ignorance and bungling with love are better than wisdom and skill without.**_
+_**Numberless are the worlds wonders, but none more wonderful than man.**_
 
-Henry David Thoreau
+Sophocles
