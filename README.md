@@ -1,3 +1,3 @@
-_**Numberless are the worlds wonders, but none more wonderful than man.**_
+_**It is not wisdom but Authority that makes a law.**_
 
-Sophocles
+Thomas Hobbes
