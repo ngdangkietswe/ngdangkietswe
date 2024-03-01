@@ -1,3 +1,3 @@
-_**It is not wisdom but Authority that makes a law.**_
+_**Anything you really want, you can attain, if you really go after it.**_
 
-Thomas Hobbes
+Wayne Dyer
