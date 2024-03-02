@@ -1,3 +1,3 @@
-_**Anything you really want, you can attain, if you really go after it.**_
+_**Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!**_
 
-Wayne Dyer
+Richard Bach
