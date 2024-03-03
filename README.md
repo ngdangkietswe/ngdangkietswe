@@ -1,3 +1,3 @@
-_**Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!**_
+_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
 
-Richard Bach
+Francis of Assisi
