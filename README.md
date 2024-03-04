@@ -1,3 +1,3 @@
-_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
+_**You are that vast thing that you see far, far off with great telescopes.**_
 
-Francis of Assisi
+Alan Watts
