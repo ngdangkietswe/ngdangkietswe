@@ -1,3 +1,3 @@
-_**You are that vast thing that you see far, far off with great telescopes.**_
+_**If you aren't going all the way, why go at all?**_
 
-Alan Watts
+Joe Namath
