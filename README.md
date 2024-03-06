@@ -1,3 +1,3 @@
-_**If you aren't going all the way, why go at all?**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Joe Namath
+Henry Wadsworth Longfellow
