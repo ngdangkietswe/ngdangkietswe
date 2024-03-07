@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**TV and the Internet are good because they keep stupid people from spending too much time out in public.**_
 
-Henry Wadsworth Longfellow
+Douglas Coupland
