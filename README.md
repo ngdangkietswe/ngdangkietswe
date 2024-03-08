@@ -1,3 +1,3 @@
-_**TV and the Internet are good because they keep stupid people from spending too much time out in public.**_
+_**Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.**_
 
-Douglas Coupland
+John Ruskin
