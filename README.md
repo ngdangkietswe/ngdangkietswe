@@ -1,3 +1,3 @@
-_**Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.**_
+_**Two persons cannot long be friends if they cannot forgive each other's little failings.**_
 
-Charles Lindbergh
+Jean de La Bruyère
