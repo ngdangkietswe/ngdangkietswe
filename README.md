@@ -1,3 +1,3 @@
-_**Two persons cannot long be friends if they cannot forgive each other's little failings.**_
+_**They must often change, who would be constant in happiness or wisdom.**_
 
-Jean de La Bruyère
+Confucius
