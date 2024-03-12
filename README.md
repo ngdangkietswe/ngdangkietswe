@@ -1,3 +1,3 @@
-_**They must often change, who would be constant in happiness or wisdom.**_
+_**If we open a quarrel between past and present, we shall find that we have lost the future.**_
 
-Confucius
+Winston Churchill
