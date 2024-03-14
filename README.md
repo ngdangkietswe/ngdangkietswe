@@ -1,3 +1,3 @@
-_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
+_**Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.**_
 
-Dag Hammarskjöld
+Albert Schweitzer
