@@ -1,3 +1,3 @@
-_**One should not hurt others if one loves oneself.**_
+_**I never worry about action, but only inaction.**_
 
-The Buddha
+Winston Churchill
