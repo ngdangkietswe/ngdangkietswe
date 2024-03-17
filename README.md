@@ -1,3 +1,3 @@
-_**I never worry about action, but only inaction.**_
+_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
 
-Winston Churchill
+Charles Caleb Colton
