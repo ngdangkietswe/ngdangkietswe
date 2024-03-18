@@ -1,3 +1,3 @@
-_**True friendship is like sound health; the value of it is seldom known until it is lost.**_
+_**The personal life deeply lived always expands into truths beyond itself.**_
 
-Charles Caleb Colton
+Anaïs Nin
