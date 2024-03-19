@@ -1,3 +1,3 @@
-_**The personal life deeply lived always expands into truths beyond itself.**_
+_**I have always thought the actions of men the best interpreters of their thoughts.**_
 
-Anaïs Nin
+John Locke
