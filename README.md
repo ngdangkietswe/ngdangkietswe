@@ -1,3 +1,3 @@
-_**You always succeed in producing a result.**_
+_**A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.**_
 
-Tony Robbins
+Ezra Stiles
