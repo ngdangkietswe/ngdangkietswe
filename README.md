@@ -1,3 +1,3 @@
-_**A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.**_
+_**The biggest adventure you can ever take is to live the life of your dreams.**_
 
-Ezra Stiles
+Oprah Winfrey
