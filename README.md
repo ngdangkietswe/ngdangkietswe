@@ -1,3 +1,3 @@
-_**The biggest adventure you can ever take is to live the life of your dreams.**_
+_**What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.**_
 
-Oprah Winfrey
+Wayne Dyer
