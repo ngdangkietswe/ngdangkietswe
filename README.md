@@ -1,3 +1,3 @@
-_**I never did anything worth doing by accident, nor did any of my inventions come by accident**_
+_**Every gift from a friend is a wish for your happiness.**_
 
-Thomas Edison
+Richard Bach
