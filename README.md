@@ -1,3 +1,3 @@
-_**Every gift from a friend is a wish for your happiness.**_
+_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
 
-Richard Bach
+The Buddha
