@@ -1,3 +1,3 @@
-_**Should a seeker not find a companion who is better or equal, let them resolutely pursue a solitary course.**_
+_**To hell with circumstances, I create opportunities.**_
 
-The Buddha
+Bruce Lee
