@@ -1,3 +1,3 @@
-_**Everything that irritates us about others can lead us to a better understanding of ourselves.**_
+_**The friendship that can cease has never been real.**_
 
-Carl Jung
+Jerome
