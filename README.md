@@ -1,3 +1,3 @@
-_**One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.**_
+_**Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.**_
 
-Simone de Beauvoir
+Ralph Waldo Emerson
