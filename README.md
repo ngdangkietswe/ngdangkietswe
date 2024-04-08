@@ -1,3 +1,3 @@
-_**He who can curb his wrath as soon as it arises, as a timely antidote will check snake's venom that so quickly spreads, — such a monk gives up the here and the beyond, just as a serpent sheds its worn-out skin.**_
+_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.**_
 
-The Buddha
+Mark Twain
