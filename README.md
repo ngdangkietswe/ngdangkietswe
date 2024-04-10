@@ -1,3 +1,3 @@
-_**Intuition will tell the thinking mind where to look next.**_
+_**When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.**_
 
-Jonas Salk
+Epictetus
