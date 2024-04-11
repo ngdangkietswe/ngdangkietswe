@@ -1,3 +1,3 @@
-_**When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.**_
+_**Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.**_
 
-Epictetus
+Gordon Hinckley
