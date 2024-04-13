@@ -1,3 +1,3 @@
-_**It is in your moments of decision that your destiny is shaped.**_
+_**Correction does much, but encouragement does more.**_
 
-Tony Robbins
+Johann Wolfgang von Goethe
