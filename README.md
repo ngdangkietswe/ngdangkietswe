@@ -1,3 +1,3 @@
-_**Nothing but heaven itself is better than a friend who is really a friend.**_
+_**Take no thought of who is right or wrong or who is better than. Be not for or against.**_
 
-Plautus
+Bruce Lee
