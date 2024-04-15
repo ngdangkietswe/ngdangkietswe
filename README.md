@@ -1,3 +1,3 @@
-_**Correction does much, but encouragement does more.**_
+_**Nothing but heaven itself is better than a friend who is really a friend.**_
 
-Johann Wolfgang von Goethe
+Plautus
