@@ -1,3 +1,3 @@
-_**Take no thought of who is right or wrong or who is better than. Be not for or against.**_
+_**Along with success comes a reputation for wisdom.**_
 
-Bruce Lee
+Euripides
