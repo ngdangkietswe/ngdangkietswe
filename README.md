@@ -1,3 +1,3 @@
-_**Along with success comes a reputation for wisdom.**_
+_**Difficulties are things that show a person what they are.**_
 
-Euripides
+Epictetus
