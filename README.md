@@ -1,3 +1,3 @@
-_**I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.**_
+_**I think and that is all that I am.**_
 
-Oprah Winfrey
+Wayne Dyer
