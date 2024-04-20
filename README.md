@@ -1,3 +1,3 @@
-_**I think and that is all that I am.**_
+_**The sum of wisdom is that time is never lost that is devoted to work.**_
 
-Wayne Dyer
+Ralph Waldo Emerson
