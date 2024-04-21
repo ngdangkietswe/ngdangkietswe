@@ -1,3 +1,3 @@
-_**The sum of wisdom is that time is never lost that is devoted to work.**_
+_**Between saying and doing, many a pair of shoes is worn out.**_
 
-Ralph Waldo Emerson
+Iris Murdoch
