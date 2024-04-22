@@ -1,3 +1,3 @@
-_**Between saying and doing, many a pair of shoes is worn out.**_
+_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
 
-Iris Murdoch
+Dag Hammarskjöld
