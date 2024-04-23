@@ -1,3 +1,3 @@
-_**Friendship needs no words - it is solitude delivered from the anguish of loneliness.**_
+_**Be slow of tongue and quick of eye.**_
 
-Dag Hammarskjöld
+Miguel de Cervantes
