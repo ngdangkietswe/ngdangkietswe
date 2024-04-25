@@ -1,3 +1,3 @@
-_**The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.**_
+_**Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.**_
 
-Hugh Jackman
+Kahlil Gibran
