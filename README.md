@@ -1,3 +1,3 @@
-_**Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.**_
+_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
 
-Kahlil Gibran
+Alexander Chalmers
