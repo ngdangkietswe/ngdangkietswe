@@ -1,3 +1,3 @@
-_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
+_**Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.**_
 
-Alexander Chalmers
+Carl Jung
