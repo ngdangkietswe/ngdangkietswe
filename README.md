@@ -1,3 +1,3 @@
-_**Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.**_
+_**Time changes everything except something within us which is always surprised by change.**_
 
-Carl Jung
+Thomas Hardy
