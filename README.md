@@ -1,3 +1,3 @@
-_**Time changes everything except something within us which is always surprised by change.**_
+_**The secret of success is constancy to purpose.**_
 
-Thomas Hardy
+Benjamin Disraeli
