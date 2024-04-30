@@ -1,3 +1,3 @@
-_**The secret of success is constancy to purpose.**_
+_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
 
-Benjamin Disraeli
+Whoopi Goldberg
