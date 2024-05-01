@@ -1,3 +1,3 @@
-_**Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.**_
+_**A prudent question is one half of wisdom.**_
 
-Whoopi Goldberg
+Francis Bacon
