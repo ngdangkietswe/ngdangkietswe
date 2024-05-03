@@ -1,3 +1,3 @@
-_**Never pretend to a love which you do not actually feel, for love is not ours to command.**_
+_**He who knows himself is enlightened.**_
 
-Alan Watts
+Laozi
