@@ -1,3 +1,3 @@
-_**He who knows himself is enlightened.**_
+_**The person who lives life fully, glowing with life's energy, is the person who lives a successful life.**_
 
-Laozi
+Daisaku Ikeda
