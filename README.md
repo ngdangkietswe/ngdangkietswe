@@ -1,3 +1,3 @@
-_**The person who lives life fully, glowing with life's energy, is the person who lives a successful life.**_
+_**When times are bad is when the real entrepreneurs emerge.**_
 
-Daisaku Ikeda
+Robert Kiyosaki
