@@ -1,3 +1,3 @@
-_**When times are bad is when the real entrepreneurs emerge.**_
+_**Time stays long enough for anyone who will use it.**_
 
-Robert Kiyosaki
+Leonardo da Vinci
