@@ -1,3 +1,3 @@
-_**A mind unruffled by the vagaries of fortune, from sorrow freed, from defilements cleansed, from fear liberated — this is the greatest blessing.**_
+_**Thought is the blossom; language the bud; action the fruit behind it.**_
 
-The Buddha
+Ralph Waldo Emerson
