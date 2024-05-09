@@ -1,3 +1,3 @@
-_**Thought is the blossom; language the bud; action the fruit behind it.**_
+_**Think for yourselves and let others enjoy the privilege to do so too.**_
 
-Ralph Waldo Emerson
+Voltaire
