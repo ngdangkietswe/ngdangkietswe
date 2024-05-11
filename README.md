@@ -1,3 +1,3 @@
-_**See the positive side, the potential, and make an effort.**_
+_**No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.**_
 
-Dalai Lama
+Robert Southey
