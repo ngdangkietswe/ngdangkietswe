@@ -1,3 +1,3 @@
-_**The calmed say that what is well-spoken is best; second, that one should say what is right, not unrighteous; third, what's pleasing, not displeasing; fourth, what is true, not false.**_
+_**Life is a travelling to the edge of knowledge, then a leap taken.**_
 
-The Buddha
+Laurence J. Peter
