@@ -1,3 +1,3 @@
-_**Life is a travelling to the edge of knowledge, then a leap taken.**_
+_**I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.**_
 
-Laurence J. Peter
+Amy Tan
