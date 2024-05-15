@@ -1,3 +1,3 @@
-_**I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.**_
+_**Build a better mousetrap and the world will beat a path to your door.**_
 
-Amy Tan
+Ralph Waldo Emerson
