@@ -1,3 +1,3 @@
-_**Build a better mousetrap and the world will beat a path to your door.**_
+_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
 
-Ralph Waldo Emerson
+Confucius
