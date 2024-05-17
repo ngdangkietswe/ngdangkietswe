@@ -1,3 +1,3 @@
-_**The Superior Man is aware of Righteousness, the inferior man is aware of advantage.**_
+_**Happiness does not come from having much, but from being attached to little.**_
 
-Confucius
+Cheng Yen
