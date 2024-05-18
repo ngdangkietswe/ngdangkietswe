@@ -1,3 +1,3 @@
-_**Happiness does not come from having much, but from being attached to little.**_
+_**I begin with an idea and then it becomes something else.**_
 
-Cheng Yen
+Pablo Picasso
