@@ -1,3 +1,3 @@
-_**There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.**_
+_**People grow through experience if they meet life honestly and courageously. This is how character is built.**_
 
-Albert Einstein
+Eleanor Roosevelt
