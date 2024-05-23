@@ -1,3 +1,3 @@
-_**People grow through experience if they meet life honestly and courageously. This is how character is built.**_
+_**A friend is a gift you give yourself.**_
 
-Eleanor Roosevelt
+Robert Louis Stevenson
