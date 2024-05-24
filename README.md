@@ -1,3 +1,3 @@
-_**A friend is a gift you give yourself.**_
+_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
 
-Robert Louis Stevenson
+Franklin D. Roosevelt
