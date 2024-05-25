@@ -1,3 +1,3 @@
-_**It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.**_
+_**He who knows, does not speak. He who speaks, does not know.**_
 
-Franklin D. Roosevelt
+Laozi
