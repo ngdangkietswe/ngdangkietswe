@@ -1,3 +1,3 @@
-_**He who knows, does not speak. He who speaks, does not know.**_
+_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
 
-Laozi
+Arthur Conan Doyle
