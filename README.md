@@ -1,3 +1,3 @@
-_**Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.**_
+_**You're not obligated to win. You're obligated to keep trying to do the best you can every day.**_
 
-Arthur Conan Doyle
+Marian Wright Edelman
