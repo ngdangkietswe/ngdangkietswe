@@ -1,3 +1,3 @@
-_**You're not obligated to win. You're obligated to keep trying to do the best you can every day.**_
+_**The pine stays green in winter... wisdom in hardship.**_
 
-Marian Wright Edelman
+Norman Douglas
