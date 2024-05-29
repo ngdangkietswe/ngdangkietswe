@@ -1,3 +1,3 @@
-_**The pine stays green in winter... wisdom in hardship.**_
+_**It is only when the mind and character slumber that the dress can be seen.**_
 
-Norman Douglas
+Ralph Waldo Emerson
