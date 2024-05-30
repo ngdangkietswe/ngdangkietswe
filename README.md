@@ -1,3 +1,3 @@
-_**It is only when the mind and character slumber that the dress can be seen.**_
+_**Fear makes strangers of people who would be friends.**_
 
-Ralph Waldo Emerson
+Shirley MacLaine
