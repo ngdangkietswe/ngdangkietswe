@@ -1,3 +1,3 @@
-_**Fear makes strangers of people who would be friends.**_
+_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
 
-Shirley MacLaine
+Francis of Assisi
