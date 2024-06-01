@@ -1,3 +1,3 @@
-_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
+_**We should all be thankful for those people who rekindle the inner spirit.**_
 
-Francis of Assisi
+Albert Schweitzer
