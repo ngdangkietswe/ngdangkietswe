@@ -1,3 +1,3 @@
-_**We should all be thankful for those people who rekindle the inner spirit.**_
+_**Along with success comes a reputation for wisdom.**_
 
-Albert Schweitzer
+Euripides
