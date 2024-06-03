@@ -1,3 +1,3 @@
-_**Along with success comes a reputation for wisdom.**_
+_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
 
-Euripides
+Wayne Dyer
