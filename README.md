@@ -1,3 +1,3 @@
-_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
+_**There is nothing so useless as doing efficiently that which should not be done at all.**_
 
-Wayne Dyer
+Peter Drucker
