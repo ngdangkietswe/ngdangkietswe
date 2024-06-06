@@ -1,3 +1,3 @@
-_**The superior man is modest in his speech but exceeds in his actions.**_
+_**Love is the wisdom of the fool and the folly of the wise.**_
 
-Confucius
+Samuel Johnson
