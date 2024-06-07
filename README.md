@@ -1,3 +1,3 @@
-_**Love is the wisdom of the fool and the folly of the wise.**_
+_**There is no expedient to which a man will not go to avoid the labor of thinking.**_
 
-Samuel Johnson
+Thomas Edison
