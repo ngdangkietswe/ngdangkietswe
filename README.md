@@ -1,3 +1,3 @@
-_**There is no expedient to which a man will not go to avoid the labor of thinking.**_
+_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
 
-Thomas Edison
+Henry Wadsworth Longfellow
