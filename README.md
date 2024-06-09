@@ -1,3 +1,3 @@
-_**He that respects himself is safe from others; he wears a coat of mail that none can pierce.**_
+_**Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.**_
 
-Henry Wadsworth Longfellow
+Hanya Yanagihara
