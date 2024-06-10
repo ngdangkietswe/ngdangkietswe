@@ -1,3 +1,3 @@
-_**Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.**_
+_**If a man watches three football games in a row, he should be declared legally dead.**_
 
-Hanya Yanagihara
+Erma Bombeck
