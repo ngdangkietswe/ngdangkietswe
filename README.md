@@ -1,3 +1,3 @@
-_**If a man watches three football games in a row, he should be declared legally dead.**_
+_**Opportunity often comes disguised in the form of misfortune, or temporary defeat.**_
 
-Erma Bombeck
+Napoleon Hill
