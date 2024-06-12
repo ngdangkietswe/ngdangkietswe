@@ -1,3 +1,3 @@
-_**Opportunity often comes disguised in the form of misfortune, or temporary defeat.**_
+_**Anticipate the difficult by managing the easy.**_
 
-Napoleon Hill
+Laozi
