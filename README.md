@@ -1,3 +1,3 @@
-_**Anticipate the difficult by managing the easy.**_
+_**You don't choose your family. They are God's gift to you, as you are to them.**_
 
-Laozi
+Desmond Tutu
