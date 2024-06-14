@@ -1,3 +1,3 @@
-_**You don't choose your family. They are God's gift to you, as you are to them.**_
+_**Knowledge is of no value unless you put it into practice.**_
 
-Desmond Tutu
+Anton Chekhov
