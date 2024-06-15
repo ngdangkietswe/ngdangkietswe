@@ -1,3 +1,3 @@
-_**Knowledge is of no value unless you put it into practice.**_
+_**Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.**_
 
-Anton Chekhov
+Eustace Budgell
