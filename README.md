@@ -1,3 +1,3 @@
-_**Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.**_
+_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
 
-Eustace Budgell
+Helen Keller
