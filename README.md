@@ -1,3 +1,3 @@
-_**The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.**_
+_**The final proof of greatness lies in being able to endure criticism without resentment.**_
 
-Helen Keller
+Elbert Hubbard
