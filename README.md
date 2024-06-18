@@ -1,3 +1,3 @@
-_**The final proof of greatness lies in being able to endure criticism without resentment.**_
+_**Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.**_
 
-Elbert Hubbard
+Louis Pasteur
