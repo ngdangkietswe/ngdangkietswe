@@ -1,3 +1,3 @@
-_**The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.**_
+_**If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.**_
 
-Cecil B. DeMille
+Nelson Mandela
