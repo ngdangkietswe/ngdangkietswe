@@ -1,3 +1,3 @@
-_**If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.**_
+_**The most formidable weapon against errors of every kind is reason.**_
 
-Nelson Mandela
+Thomas Paine
