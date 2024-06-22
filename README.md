@@ -1,3 +1,3 @@
-_**The most formidable weapon against errors of every kind is reason.**_
+_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
 
-Thomas Paine
+Peter Drucker
