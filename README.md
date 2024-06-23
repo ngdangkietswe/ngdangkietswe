@@ -1,3 +1,3 @@
-_**The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.**_
+_**Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.**_
 
-Peter Drucker
+Johann Kaspar Lavater
