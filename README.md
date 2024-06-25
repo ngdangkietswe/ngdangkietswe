@@ -1,3 +1,3 @@
-_**No man can succeed in a line of endeavor which he does not like.**_
+_**A single lamp may light hundreds of thousands of lamps without itself being diminished.**_
 
-Napoleon Hill
+The Buddha
