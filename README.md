@@ -1,3 +1,3 @@
-_**A single lamp may light hundreds of thousands of lamps without itself being diminished.**_
+_**By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.**_
 
 The Buddha
