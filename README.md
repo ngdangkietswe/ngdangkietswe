@@ -1,3 +1,3 @@
-_**Technology is destructive only in the hands of people who do not realize that they are one and the same process as the universe.**_
+_**Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.**_
 
-Alan Watts
+George S. Patton
