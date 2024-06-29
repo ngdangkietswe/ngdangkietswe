@@ -74,11 +74,11 @@ jobs:
           docker push $IMAGE_NAME:$IMAGE_TAG
 
       # Telegram
-      - name: Telegram Notify
-        uses: appleboy/telegram-action@master
-        with:
-          to: ${{ secrets.TELEGRAM_ID }}
-          token: ${{ secrets.TELEGRAM_TOKEN }}
-          message: |
-            New commit 👇
-            https://github.com/${{ github.repository }}/commit/${{github.sha}}
+      # - name: Telegram Notify
+      #   uses: appleboy/telegram-action@master
+      #   with:
+      #     to: ${{ secrets.TELEGRAM_ID }}
+      #     token: ${{ secrets.TELEGRAM_TOKEN }}
+      #     message: |
+      #       New commit 👇
+      #       https://github.com/${{ github.repository }}/commit/${{github.sha}}
