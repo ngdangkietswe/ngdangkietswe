@@ -1,3 +1,3 @@
-_**If the stars should appear but one night every thousand years how man would marvel and adore.**_
+_**Autumn is a second spring when every leaf is a flower.**_
 
-Ralph Waldo Emerson
+Albert Camus
