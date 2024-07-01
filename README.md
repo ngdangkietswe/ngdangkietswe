@@ -1,3 +1,3 @@
-_**Autumn is a second spring when every leaf is a flower.**_
+_**There is nothing impossible to him who will try.**_
 
-Albert Camus
+Alexander the Great
