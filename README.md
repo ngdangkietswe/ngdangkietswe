@@ -1,3 +1,3 @@
-_**The simplest things are often the truest.**_
+_**Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.**_
 
-Richard Bach
+Dalai Lama
