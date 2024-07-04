@@ -1,3 +1,3 @@
-_**Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.**_
+_**All great achievements require time.**_
 
-Dalai Lama
+Maya Angelou
