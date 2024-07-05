@@ -1,3 +1,3 @@
-_**All great achievements require time.**_
+_**Time you enjoyed wasting was not wasted.**_
 
-Maya Angelou
+John Lennon
