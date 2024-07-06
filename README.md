@@ -1,3 +1,3 @@
-_**Time you enjoyed wasting was not wasted.**_
+_**Not engaging in ignorance is wisdom.**_
 
-John Lennon
+Bodhidharma
