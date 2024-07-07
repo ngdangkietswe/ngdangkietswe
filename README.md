@@ -1,3 +1,3 @@
-_**Not engaging in ignorance is wisdom.**_
+_**The superior man understands what is right; the inferior man understands what will sell.**_
 
-Bodhidharma
+Confucius
