@@ -1,3 +1,3 @@
-_**The superior man understands what is right; the inferior man understands what will sell.**_
+_**Opportunity is missed by most because it is dressed in overalls and looks like work.**_
 
-Confucius
+Thomas Edison
