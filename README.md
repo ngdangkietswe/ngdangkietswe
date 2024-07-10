@@ -1,3 +1,3 @@
-_**Truth is powerful and it prevails.**_
+_**A goal without a plan is just a wish.**_
 
-Sojourner Truth
+Larry Elder
