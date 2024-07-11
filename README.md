@@ -1,3 +1,3 @@
-_**A goal without a plan is just a wish.**_
+_**Those who are free of resentful thoughts surely find peace.**_
 
-Larry Elder
+The Buddha
