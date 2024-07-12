@@ -1,3 +1,3 @@
-_**Those who are free of resentful thoughts surely find peace.**_
+_**Education is the most powerful weapon which you can use to change the world.**_
 
-The Buddha
+Nelson Mandela
