@@ -1,3 +1,3 @@
-_**Education is the most powerful weapon which you can use to change the world.**_
+_**Happiness is when what you think, what you say, and what you do are in harmony.**_
 
-Nelson Mandela
+Mahatma Gandhi
