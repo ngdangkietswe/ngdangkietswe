@@ -1,3 +1,3 @@
-_**Happiness is when what you think, what you say, and what you do are in harmony.**_
+_**The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.**_
 
-Mahatma Gandhi
+Charlotte Perkins Gilman
