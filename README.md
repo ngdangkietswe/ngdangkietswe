@@ -1,3 +1,3 @@
-_**The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.**_
+_**The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.**_
 
-Charlotte Perkins Gilman
+Isaac Asimov
