@@ -1,3 +1,3 @@
-_**The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.**_
+_**Wise men make more opportunities than they find.**_
 
-Isaac Asimov
+Francis Bacon
