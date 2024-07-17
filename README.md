@@ -1,3 +1,3 @@
-_**Wise men make more opportunities than they find.**_
+_**The personal life deeply lived always expands into truths beyond itself.**_
 
-Francis Bacon
+Anaïs Nin
