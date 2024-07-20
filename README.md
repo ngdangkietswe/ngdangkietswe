@@ -1,3 +1,3 @@
-_**Can you imagine what I would do if I could do all I can?**_
+_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
 
-Sun Tzu
+Muhammad Ali
