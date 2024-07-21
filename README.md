@@ -1,3 +1,3 @@
-_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
+_**Everyone thinks of changing the world, but no one thinks of changing himself.**_
 
-Muhammad Ali
+Leo Tolstoy
