@@ -1,3 +1,3 @@
-_**Everyone thinks of changing the world, but no one thinks of changing himself.**_
+_**Experience is not what happens to a man. It is what a man does with what happens to him.**_
 
-Leo Tolstoy
+Aldous Huxley
