@@ -1,3 +1,3 @@
-_**Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.**_
+_**I have never been hurt by anything I didn't say.**_
 
-Marie Curie
+Calvin Coolidge
