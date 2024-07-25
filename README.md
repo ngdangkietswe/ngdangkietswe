@@ -1,3 +1,3 @@
-_**I have never been hurt by anything I didn't say.**_
+_**We can do no great things, only small things with great love.**_
 
-Calvin Coolidge
+Mother Teresa
