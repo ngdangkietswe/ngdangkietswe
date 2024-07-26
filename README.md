@@ -1,3 +1,3 @@
-_**We can do no great things, only small things with great love.**_
+_**Do not wait for leaders; do it alone, person to person.**_
 
 Mother Teresa
