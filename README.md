@@ -1,3 +1,3 @@
-_**Do not wait for leaders; do it alone, person to person.**_
+_**We are stuck with technology when what we really want is just stuff that works.**_
 
-Mother Teresa
+Douglas Adams
