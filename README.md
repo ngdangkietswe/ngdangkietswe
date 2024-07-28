@@ -1,3 +1,3 @@
-_**We are stuck with technology when what we really want is just stuff that works.**_
+_**It is in the nature of things that joy arises in a person free from remorse.**_
 
-Douglas Adams
+The Buddha
