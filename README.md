@@ -1,3 +1,3 @@
-_**It is in the nature of things that joy arises in a person free from remorse.**_
+_**Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.**_
 
-The Buddha
+Billy Wilder
