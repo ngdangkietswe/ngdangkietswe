@@ -1,3 +1,3 @@
-_**When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.**_
+_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
 
-Helen Keller
+Mother Teresa
