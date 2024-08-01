@@ -1,3 +1,3 @@
-_**Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.**_
+_**Ignorance and bungling with love are better than wisdom and skill without.**_
 
-Mother Teresa
+Henry David Thoreau
