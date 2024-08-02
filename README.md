@@ -1,3 +1,3 @@
-_**Ignorance and bungling with love are better than wisdom and skill without.**_
+_**Knowing your own darkness is the best method for dealing with the darkness of other people.**_
 
-Henry David Thoreau
+Carl Jung
