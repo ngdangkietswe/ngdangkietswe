@@ -1,3 +1,3 @@
-_**Knowing your own darkness is the best method for dealing with the darkness of other people.**_
+_**By accepting yourself and being fully what you are, your presence can make others happy.**_
 
-Carl Jung
+Jane Roberts
