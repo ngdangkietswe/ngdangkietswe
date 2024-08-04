@@ -1,3 +1,3 @@
-_**By accepting yourself and being fully what you are, your presence can make others happy.**_
+_**To lead people walk behind them.**_
 
-Jane Roberts
+Laozi
