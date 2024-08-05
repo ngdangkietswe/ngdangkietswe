@@ -1,3 +1,3 @@
-_**To lead people walk behind them.**_
+_**The price of greatness is responsibility.**_
 
-Laozi
+Winston Churchill
