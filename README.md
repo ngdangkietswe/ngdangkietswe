@@ -1,3 +1,3 @@
-_**I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.**_
+_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
 
-Michel de Montaigne
+Francis of Assisi
