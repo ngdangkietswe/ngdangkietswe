@@ -1,3 +1,3 @@
-_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
+_**The bird of paradise alights only upon the hand that does not grasp.**_
 
-Francis of Assisi
+John Berry
