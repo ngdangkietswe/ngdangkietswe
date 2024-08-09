@@ -1,3 +1,3 @@
-_**The bird of paradise alights only upon the hand that does not grasp.**_
+_**Eternal nothingness is fine if you happen to be dressed for it.**_
 
-John Berry
+Woody Allen
