@@ -1,3 +1,3 @@
-_**If you do what you've always done, you'll get what you've always gotten.**_
+_**Friendship is a very taxing and arduous form of leisure activity.**_
 
-Tony Robbins
+Mortimer J. Adler
