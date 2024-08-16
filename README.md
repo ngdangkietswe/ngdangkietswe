@@ -1,3 +1,3 @@
-_**I'm not interested in age. People who tell me their age are silly. You're as old as you feel.**_
+_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
 
-Elizabeth Arden
+Maya Angelou
