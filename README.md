@@ -1,3 +1,3 @@
-_**If one is lucky, a solitary fantasy can totally transform one million realities.**_
+_**Don't look back. Something might be gaining on you.**_
 
-Maya Angelou
+Satchel Paige
