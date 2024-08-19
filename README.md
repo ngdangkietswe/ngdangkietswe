@@ -1,3 +1,3 @@
-_**You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.**_
+_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
 
-Albert Camus
+Martin Luther King Jr.
