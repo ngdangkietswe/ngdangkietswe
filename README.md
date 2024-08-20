@@ -1,3 +1,3 @@
-_**Life's most persistent and urgent question is, 'What are you doing for others?'**_
+_**I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.**_
 
-Martin Luther King Jr.
+G. K. Chesterton
