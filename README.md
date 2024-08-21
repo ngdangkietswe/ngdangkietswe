@@ -1,3 +1,3 @@
-_**I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.**_
+_**It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.**_
 
-G. K. Chesterton
+Henry Ward Beecher
