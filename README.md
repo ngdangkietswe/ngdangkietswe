@@ -1,3 +1,3 @@
-_**It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.**_
+_**The art of progress is to preserve order amid change, and to preserve change amid order.**_
 
-Henry Ward Beecher
+Alfred North Whitehead
