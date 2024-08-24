@@ -1,3 +1,3 @@
-_**The road of excess leads to the palace of wisdom.**_
+_**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**_
 
-William Blake
+Aristotle
