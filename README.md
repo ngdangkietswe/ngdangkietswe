@@ -1,3 +1,3 @@
-_**We are what we repeatedly do. Excellence, then, is not an act, but a habit.**_
+_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
 
-Aristotle
+The Buddha
