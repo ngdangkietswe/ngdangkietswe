@@ -1,3 +1,3 @@
-_**What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there.**_
+_**A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.**_
 
-The Buddha
+Molière
