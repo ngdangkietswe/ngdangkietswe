@@ -1,3 +1,3 @@
-_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
+_**Good luck is another name for tenacity of purpose.**_
 
-Benjamin Disraeli
+Ralph Waldo Emerson
