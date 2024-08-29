@@ -1,3 +1,3 @@
-_**Good luck is another name for tenacity of purpose.**_
+_**Irony is the gaiety of reflection and the joy of wisdom.**_
 
-Ralph Waldo Emerson
+Anatole France
