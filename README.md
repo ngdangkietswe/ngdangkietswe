@@ -1,3 +1,3 @@
-_**Irony is the gaiety of reflection and the joy of wisdom.**_
+_**Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.**_
 
-Anatole France
+Mariella Frostrup
