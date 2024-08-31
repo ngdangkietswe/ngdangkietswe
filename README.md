@@ -1,3 +1,3 @@
-_**Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.**_
+_**Good advice is always certain to be ignored, but that's no reason not to give it.**_
 
-Mariella Frostrup
+Agatha Christie
