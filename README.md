@@ -1,3 +1,3 @@
-_**Good advice is always certain to be ignored, but that's no reason not to give it.**_
+_**Wisdom alone is the science of other sciences.**_
 
-Agatha Christie
+Plato
