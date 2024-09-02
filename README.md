@@ -1,3 +1,3 @@
-_**Wisdom alone is the science of other sciences.**_
+_**Whether you think you can or you think you can't, you are right.**_
 
-Plato
+Henry Ford
