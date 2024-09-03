@@ -1,3 +1,3 @@
-_**Whether you think you can or you think you can't, you are right.**_
+_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
 
-Henry Ford
+François de La Rochefoucauld
