@@ -1,3 +1,3 @@
-_**A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.**_
+_**I have done my best: that is about all the philosophy of living one needs.**_
 
-François de La Rochefoucauld
+Lin Yutang
