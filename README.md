@@ -1,3 +1,3 @@
-_**I have done my best: that is about all the philosophy of living one needs.**_
+_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
 
-Lin Yutang
+Richard Burton
