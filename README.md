@@ -1,3 +1,3 @@
-_**False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.**_
+_**He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.**_
 
-Richard Burton
+Tryon Edwards
