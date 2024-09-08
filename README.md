@@ -1,3 +1,3 @@
-_**The higher we are placed, the more humbly we should walk.**_
+_**True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.**_
 
-Cicero
+George Washington
