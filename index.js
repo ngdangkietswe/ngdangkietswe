@@ -8,9 +8,13 @@ const PORT = process.env.PORT || 8081;
 const URL = process.env.URL;
 const CLOSE_DELAY = 5000;
 
+const agent = new https.Agent({
+  rejectUnauthorized: false,
+});
+
 const getQuote = async () => {
   try {
-    const { data } = await axios.get(URL);
+    const { data } = await axios.get(URL, { httpsAgent: agent });
     console.log(data);
 
     const quote = data[0]?.content;
