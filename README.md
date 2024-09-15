@@ -1,3 +1,3 @@
-_**Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.**_
+_**The extreme limit of wisdom, that's what the public calls madness.**_
 
-Plato
+Jean Cocteau
