@@ -1,3 +1,3 @@
-_**The extreme limit of wisdom, that's what the public calls madness.**_
+_**Kind words do not cost much. Yet they accomplish much.**_
 
-Jean Cocteau
+Blaise Pascal
