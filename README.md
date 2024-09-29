@@ -1,3 +1,3 @@
-_**Kind words do not cost much. Yet they accomplish much.**_
+_**You can always count on Americans to do the right thing - after they've tried everything else.**_
 
-Blaise Pascal
+Winston Churchill
