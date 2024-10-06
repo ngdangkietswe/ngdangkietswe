@@ -1,3 +1,3 @@
-_**You can always count on Americans to do the right thing - after they've tried everything else.**_
+_**Walking with a friend in the dark is better than walking alone in the light.**_
 
-Winston Churchill
+Helen Keller
