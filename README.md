@@ -1,3 +1,3 @@
-_**Walking with a friend in the dark is better than walking alone in the light.**_
+_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
 
-Helen Keller
+William James
