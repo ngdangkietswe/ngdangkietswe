@@ -1,3 +1,3 @@
-_**To change one's life, start immediately, do it flamboyantly, no exceptions.**_
+_**If you spend too much time thinking about a thing, you'll never get it done.**_
 
-William James
+Bruce Lee
