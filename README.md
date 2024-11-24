@@ -1,3 +1,3 @@
-_**A man's growth is seen in the successive choirs of his friends**_
+_**Always keep an open mind and a compassionate heart.**_
 
-Ralph Waldo Emerson
+Phil Jackson
