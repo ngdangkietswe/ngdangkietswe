@@ -1,3 +1,3 @@
-_**Always keep an open mind and a compassionate heart.**_
+_**Successful people ask better questions, and as a result, they get better answers.**_
 
-Phil Jackson
+Tony Robbins
