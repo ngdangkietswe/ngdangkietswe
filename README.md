@@ -1,3 +1,3 @@
-_**Successful people ask better questions, and as a result, they get better answers.**_
+_**I begin with an idea and then it becomes something else.**_
 
-Tony Robbins
+Pablo Picasso
