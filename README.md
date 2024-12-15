@@ -1,3 +1,3 @@
-_**I begin with an idea and then it becomes something else.**_
+_**Life is what you make of it. Always has been, always will be.**_
 
-Pablo Picasso
+Grandma Moses
