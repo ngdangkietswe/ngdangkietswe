@@ -1,3 +1,3 @@
-_**Life is what you make of it. Always has been, always will be.**_
+_**To enjoy life, we must touch much of it lightly.**_
 
-Grandma Moses
+Voltaire
