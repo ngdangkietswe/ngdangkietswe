@@ -1,3 +1,3 @@
-_**To enjoy life, we must touch much of it lightly.**_
+_**Work while you have the light. You are responsible for the talent that has been entrusted to you.**_
 
-Voltaire
+Henri-Frédéric Amiel
