@@ -1,3 +1,3 @@
-_**Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.**_
+_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
 
-Niccolò Machiavelli
+Og Mandino
