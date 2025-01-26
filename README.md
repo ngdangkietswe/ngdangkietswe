@@ -1,3 +1,3 @@
-_**I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.**_
+_**The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.**_
 
-Og Mandino
+Dalai Lama
