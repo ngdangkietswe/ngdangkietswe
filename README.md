@@ -1,3 +1,3 @@
-_**Without some goals and some efforts to reach it, no man can live.**_
+_**To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.**_
 
-John Dewey
+Dalai Lama
