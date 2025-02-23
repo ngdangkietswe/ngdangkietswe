@@ -1,3 +1,3 @@
-_**To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.**_
+_**You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.**_
 
-Dalai Lama
+Anatole France
