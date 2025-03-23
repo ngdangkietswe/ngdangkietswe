@@ -1,3 +1,3 @@
-_**It is a miracle that curiosity survives formal education.**_
+_**The opportunity for brotherhood presents itself every time you meet a human being.**_
 
-Albert Einstein
+Jane Wyman
