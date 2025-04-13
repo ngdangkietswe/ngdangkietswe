@@ -1,3 +1,3 @@
-_**I walk slowly, but I never walk backward.**_
+_**The two most powerful warriors are patience and time.**_
 
-Abraham Lincoln
+Leo Tolstoy
