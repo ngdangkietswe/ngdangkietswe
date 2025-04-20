@@ -1,3 +1,3 @@
-_**The two most powerful warriors are patience and time.**_
+_**We don't know a millionth of one percent about anything.**_
 
-Leo Tolstoy
+Thomas Edison
