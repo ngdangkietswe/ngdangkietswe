@@ -1,3 +1,3 @@
-_**We don't know a millionth of one percent about anything.**_
+_**Allow the world to live as it chooses, and allow yourself to live as you choose.**_
 
-Thomas Edison
+Richard Bach
