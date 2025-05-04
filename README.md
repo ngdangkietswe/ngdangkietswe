@@ -1,3 +1,3 @@
-_**Allow the world to live as it chooses, and allow yourself to live as you choose.**_
+_**All wisdom does not reside in Delhi.**_
 
-Richard Bach
+P. Chidambaram
