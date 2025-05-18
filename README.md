@@ -1,3 +1,3 @@
-_**If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.**_
+_**Your friend is your needs answered.**_
 
-Vince Lombardi
+Kahlil Gibran
