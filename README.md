@@ -1,3 +1,3 @@
-_**Smile, breathe and go slowly.**_
+_**Our strength grows out of our weaknesses.**_
 
-Thích Nhất Hạnh
+Ralph Waldo Emerson
