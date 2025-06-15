@@ -1,3 +1,3 @@
-_**Our strength grows out of our weaknesses.**_
+_**I'll prepare and someday my chance will come.**_
 
-Ralph Waldo Emerson
+Abraham Lincoln
