@@ -1,3 +1,3 @@
-_**Silence is deep as Eternity; Speech is shallow as Time.**_
+_**The man who trusts men will make fewer mistakes than he who distrusts them.**_
 
-Thomas Carlyle
+Camillo Benso, Count of Cavour
