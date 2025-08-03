@@ -1,3 +1,3 @@
-_**The power of intuitive understanding will protect you from harm until the end of your days.**_
+_**Wisdom is the power to put our time and our knowledge to the proper use.**_
 
-Laozi
+Thomas J. Watson
