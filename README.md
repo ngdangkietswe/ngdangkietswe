@@ -1,3 +1,3 @@
-_**Wisdom is the power to put our time and our knowledge to the proper use.**_
+_**The truest greatness lies in being kind, the truest wisdom in a happy mind.**_
 
-Thomas J. Watson
+Ella Wheeler Wilcox
