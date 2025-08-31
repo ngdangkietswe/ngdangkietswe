@@ -1,3 +1,3 @@
-_**There are no failures. Just experiences and your reactions to them.**_
+_**When in doubt, tell the truth.**_
 
-Tom Krause
+Mark Twain
