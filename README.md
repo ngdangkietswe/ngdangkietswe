@@ -1,3 +1,3 @@
-_**When in doubt, tell the truth.**_
+_**They can do all because they think they can.**_
 
-Mark Twain
+Virgil
