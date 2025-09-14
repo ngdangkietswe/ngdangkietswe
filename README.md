@@ -1,3 +1,3 @@
-_**They can do all because they think they can.**_
+_**Reality does not conform to the ideal but confirms it.**_
 
-Virgil
+Gustave Flaubert
