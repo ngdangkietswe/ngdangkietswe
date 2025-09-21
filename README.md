@@ -1,3 +1,3 @@
-_**Reality does not conform to the ideal but confirms it.**_
+_**Don't settle for a relationship that won't let you be yourself.**_
 
-Gustave Flaubert
+Oprah Winfrey
