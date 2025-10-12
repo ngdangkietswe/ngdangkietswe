@@ -1,3 +1,3 @@
-_**I am always doing that which I cannot do, in order that I may learn how to do it.**_
+_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
 
-Pablo Picasso
+Alexander Chalmers
