@@ -1,3 +1,3 @@
-_**The grand essentials of happiness are: something to do, something to love, and something to hope for.**_
+_**Friendship increases in visiting friends, but in visiting them seldom.**_
 
-Alexander Chalmers
+Francis Bacon
