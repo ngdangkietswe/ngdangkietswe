@@ -1,3 +1,3 @@
-_**Friendship increases in visiting friends, but in visiting them seldom.**_
+_**Never promise more than you can perform.**_
 
-Francis Bacon
+Publilius Syrus
