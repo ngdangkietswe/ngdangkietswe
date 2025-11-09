@@ -1,3 +1,3 @@
-_**You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.**_
+_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
 
-Naguib Mahfouz
+Thomas Edison
