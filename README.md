@@ -1,3 +1,3 @@
-_**Genius is one percent inspiration and ninety-nine percent perspiration.**_
+_**Peace cannot be kept by force. It can only be achieved by understanding.**_
 
-Thomas Edison
+Albert Einstein
