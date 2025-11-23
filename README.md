@@ -1,3 +1,3 @@
-_**Peace cannot be kept by force. It can only be achieved by understanding.**_
+_**Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.**_
 
-Albert Einstein
+Wolfgang Amadeus Mozart
