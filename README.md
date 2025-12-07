@@ -1,3 +1,3 @@
-_**Love is the wisdom of the fool and the folly of the wise.**_
+_**The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.**_
 
-Samuel Johnson
+William Hurt
