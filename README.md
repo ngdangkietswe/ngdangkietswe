@@ -1,3 +1,3 @@
-_**The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.**_
+_**In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.**_
 
-William Hurt
+Leonardo da Vinci
