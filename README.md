@@ -1,3 +1,3 @@
-_**If the shoe doesn't fit, must we change the foot?**_
+_**Love is the master key that opens the gates of happiness.**_
 
-Gloria Steinem
+Oliver Wendell Holmes Jr.
