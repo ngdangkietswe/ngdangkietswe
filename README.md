@@ -1,3 +1,3 @@
-_**Love is the master key that opens the gates of happiness.**_
+_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
 
-Oliver Wendell Holmes Jr.
+Benjamin Disraeli
