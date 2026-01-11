@@ -1,3 +1,3 @@
-_**The greatest good you can do for another is not just share your riches but reveal to them their own.**_
+_**Don't leave a stone unturned. It's always something, to know you have done the most you could.**_
 
-Benjamin Disraeli
+Charles Dickens
