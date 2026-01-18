@@ -1,3 +1,3 @@
-_**Don't leave a stone unturned. It's always something, to know you have done the most you could.**_
+_**Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.**_
 
-Charles Dickens
+Muhammad Ali
