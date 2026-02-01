@@ -1,3 +1,3 @@
-_**Men are disturbed not by things, but by the view which they take of them.**_
+_**To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.**_
 
-Epictetus
+Kahlil Gibran
