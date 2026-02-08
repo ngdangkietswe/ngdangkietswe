@@ -1,3 +1,3 @@
-_**To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.**_
+_**We must never forget that it is through our actions, words, and thoughts that we have a choice.**_
 
-Kahlil Gibran
+Sogyal Rinpoche
