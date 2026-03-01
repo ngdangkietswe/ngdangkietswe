@@ -1,3 +1,3 @@
-_**Spread love everywhere you go. Let no one ever come to you without leaving happier.**_
+_**We are Divine enough to ask and we are important enough to receive.**_
 
-Mother Teresa
+Wayne Dyer
