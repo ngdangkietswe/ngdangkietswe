@@ -1,3 +1,3 @@
-_**We are Divine enough to ask and we are important enough to receive.**_
+_**Blessed is the man who expects nothing, for he shall never be disappointed.**_
 
-Wayne Dyer
+Alexander Pope
