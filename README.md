@@ -1,3 +1,3 @@
-_**Blessed is the man who expects nothing, for he shall never be disappointed.**_
+_**Nothing will work unless you do.**_
 
-Alexander Pope
+Maya Angelou
