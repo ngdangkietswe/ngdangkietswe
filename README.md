@@ -1,3 +1,3 @@
-_**Where there is charity and wisdom, there is neither fear nor ignorance.**_
+_**Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.**_
 
-Francis of Assisi
+Lou Holtz
