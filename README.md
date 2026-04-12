@@ -1,3 +1,3 @@
-_**Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.**_
+_**He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.**_
 
-Lou Holtz
+Epictetus
