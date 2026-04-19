@@ -1,3 +1,3 @@
-_**He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.**_
+_**Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present.**_
 
-Epictetus
+Joan Rivers
