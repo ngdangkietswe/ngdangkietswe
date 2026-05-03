@@ -1,3 +1,3 @@
-_**Life is like riding a bicycle. To keep your balance you must keep moving.**_
+_**We love life, not because we are used to living but because we are used to loving.**_
 
-Albert Einstein
+Friedrich Nietzsche
