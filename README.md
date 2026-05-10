@@ -1,3 +1,3 @@
-_**We love life, not because we are used to living but because we are used to loving.**_
+_**It is in the nature of things that joy arises in a person free from remorse.**_
 
-Friedrich Nietzsche
+The Buddha
