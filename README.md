@@ -1,3 +1,3 @@
-_**It is in the nature of things that joy arises in a person free from remorse.**_
+_**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**_
 
-The Buddha
+Helen Keller
