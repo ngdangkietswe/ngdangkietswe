@@ -1,3 +1,3 @@
-_**Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.**_
+_**If you have a harem of 40 women, you never get to know any of them very well.**_
 
-Helen Keller
+Warren Buffett
