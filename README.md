@@ -1,3 +1,3 @@
-_**If you have a harem of 40 women, you never get to know any of them very well.**_
+_**When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.**_
 
-Warren Buffett
+Confucius
