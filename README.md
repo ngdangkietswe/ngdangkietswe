@@ -1,3 +1,3 @@
-_**In seed time learn, in harvest teach, in winter enjoy.**_
+_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.**_
 
-William Blake
+Mark Twain
