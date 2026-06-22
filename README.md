@@ -1,3 +1,3 @@
-_**Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.**_
+_**Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.**_
 
-Mark Twain
+Marcus Aurelius
