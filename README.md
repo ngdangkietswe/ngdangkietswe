@@ -1,3 +1,3 @@
-_**Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.**_
+_**Think like a man of action; act like a man of thought.**_
 
-Marcus Aurelius
+Henri Bergson
