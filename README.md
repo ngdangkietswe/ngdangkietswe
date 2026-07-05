@@ -1,3 +1,3 @@
-_**Think like a man of action; act like a man of thought.**_
+_**We make a living by what we get, but we make a life by what we give.**_
 
-Henri Bergson
+Winston Churchill
