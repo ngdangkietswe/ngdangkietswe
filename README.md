@@ -1,3 +1,3 @@
-_**Learning without reflection is a waste, reflection without learning is dangerous.**_
+_**Trying to sneak a fastball past Hank Aaron is like trying to sneak the sunrise past a rooster.**_
 
-Confucius
+Joe Adcock
