@@ -1,3 +1,3 @@
-_**Victory belongs to the most persevering.**_
+_**A friend is one who knows you and loves you just the same.**_
 
-Napoleon
+Elbert Hubbard
