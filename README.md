@@ -1,3 +1,3 @@
-_**A friend is one who knows you and loves you just the same.**_
+_**Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.**_
 
-Elbert Hubbard
+The Buddha
