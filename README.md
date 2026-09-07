@@ -1,3 +1,3 @@
-_**Eternal nothingness is fine if you happen to be dressed for it.**_
+_**A man should look for what is, and not for what he thinks should be.**_
 
-Woody Allen
+Albert Einstein
