@@ -1,3 +1,3 @@
-_**'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.**_
+_**When we are no longer able to change a situation - we are challenged to change ourselves.**_
 
-The Buddha
+Viktor Frankl
