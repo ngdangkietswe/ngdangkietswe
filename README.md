@@ -1,3 +1,3 @@
-_**When we are no longer able to change a situation - we are challenged to change ourselves.**_
+_**The mind unlearns with difficulty what it has long learned.**_
 
-Viktor Frankl
+Seneca the Younger
