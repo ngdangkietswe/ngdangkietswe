@@ -1,3 +1,3 @@
-_**The mind unlearns with difficulty what it has long learned.**_
+_**Wisdom comes alone through suffering.**_
 
-Seneca the Younger
+Aeschylus
