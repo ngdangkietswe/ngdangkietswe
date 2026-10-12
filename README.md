@@ -1,3 +1,3 @@
-_**Wisdom comes alone through suffering.**_
+_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
 
-Aeschylus
+John F. Kennedy
