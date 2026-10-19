@@ -1,3 +1,3 @@
-_**When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.**_
+_**The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.**_
 
-John F. Kennedy
+Plato
