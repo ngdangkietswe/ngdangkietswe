@@ -1,3 +1,3 @@
-_**The more you care, the stronger you can be.**_
+_**Our kindness may be the most persuasive argument for that which we believe.**_
 
-Jim Rohn
+Gordon Hinckley
